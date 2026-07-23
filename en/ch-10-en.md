@@ -1,6 +1,6 @@
-CHAPTER 10.
+CHAPTER 10
 
-PARENTAL AFFECTION.
+PARENTAL AFFECTION
 
 Parental affection is, perhaps, the blindest modification of
 perverse self-love; for we have not, like the French two terms

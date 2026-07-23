@@ -1,7 +1,7 @@
-CHAPTER 9.
+CHAPTER 9
 
 OF THE PERNICIOUS EFFECTS WHICH ARISE FROM THE UNNATURAL
-DISTINCTIONS ESTABLISHED IN SOCIETY.
+DISTINCTIONS ESTABLISHED IN SOCIETY
 
 >From the respect paid to property flow, as from a poisoned
 fountain, most of the evils and vices which render this world such

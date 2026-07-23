@@ -1,6 +1,6 @@
-CHAPTER 7.
+CHAPTER 7
 
-MODESTY COMPREHENSIVELY CONSIDERED AND NOT AS A SEXUAL VIRTUE.
+MODESTY COMPREHENSIVELY CONSIDERED AND NOT AS A SEXUAL VIRTUE
 
 Modesty!  Sacred offspring of sensibility and reason! true delicacy
 of mind! may I unblamed presume to investigate thy nature, and

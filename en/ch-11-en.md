@@ -1,6 +1,6 @@
-CHAPTER 11.
+CHAPTER 11
 
-DUTY TO PARENTS.
+DUTY TO PARENTS
 
 There seems to be an indolent propensity in man to make
 prescription always take place of reason, and to place every duty

@@ -1,7 +1,7 @@
-CHAPTER 8.
+CHAPTER 8
 
 MORALITY UNDERMINED BY SEXUAL NOTIONS OF THE IMPORTANCE OF A GOOD
-REPUTATION.
+REPUTATION
 
 It has long since occurred to me, that advice respecting behaviour,
 and all the various modes of preserving a good reputation, which
