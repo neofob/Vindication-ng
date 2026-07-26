@@ -1,7 +1,7 @@
-CHƯƠNG 5.
+CHƯƠNG 5
 
 NHỮNG PHÊ BÌNH VỀ MỘT SỐ TÁC GIẢ ĐÃ BIẾN PHỤ NỮ
-THÀNH ĐỐI TƯỢNG CỦA SỰ THƯƠNG HẠI, GẦN NHƯ LÀ SỰ KHINH MIỆT.
+THÀNH ĐỐI TƯỢNG CỦA SỰ THƯƠNG HẠI, GẦN NHƯ LÀ SỰ KHINH MIỆT
 
 Những ý kiến được ngụy biện trong một vài ấn phẩm hiện đại về tính cách và giáo dục của phái nữ, vốn đã tạo ra âm hưởng cho phần lớn những quan sát hời hợt về giới này, giờ đây cần phải được xem xét.
 

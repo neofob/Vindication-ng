@@ -1,898 +1,174 @@
 CHƯƠNG 13
 
-MỘT VÀI VÍ DỤ VỀ SỰ NGU MUỘI DO SỰ NGU MUỘI CỦA PHỤ NỮ
-TẠO RA; CÙNG NHỮNG SUY NGẪM KẾT LUẬN VỀ SỰ CẢI THIỆN
-ĐẠO ĐỨC MÀ MỘT CUỘC CÁCH MẠNG TRONG CÁCH HÀNH XỬ CỦA
-PHỤ NỮ CÓ THỂ TỰ NHIÊN MANG LẠI
-
-Có nhiều sự ngu muội, ở một mức độ nào đó, là đặc
-thù của phụ nữ: những tội lỗi chống lại lý trí, cả
-về hành động lẫn sự bỏ bê; nhưng vì tất cả đều bắt
-nguồn từ sự ngu muội hoặc định kiến, tôi sẽ chỉ chỉ
-ra những điều dường như gây hại cho nhân cách đạo đức
-của họ. Và khi phê bình chúng, tôi đặc biệt muốn chứng minh
-rằng sự yếu đuối về tâm trí và thể chất mà đàn ông đã
-cố gắng duy trì bằng nhiều động cơ khác nhau, ngăn cản họ
-thực hiện bổn phận đặc thù của phái mình: vì khi sự yếu
-đuối của cơ thể không cho phép họ nuôi con bằng sữa mẹ,
-và sự yếu đuối của tâm trí khiến họ làm hư tính cách của
-trẻ—liệu phụ nữ có đang ở trong một trạng thái tự nhiên?
-
-PHẦN 13.1.
-
-Một ví dụ điển hình về sự yếu đuối nảy sinh từ sự
-ngu muội cần được chú ý trước tiên và cần bị khiển
-trách nghiêm khắc.
-
-Tại thành phố lớn này, một số "con đỉa" ẩn mình kiếm
-sống bằng cách lợi dụng lòng tin của phụ nữ, giả vờ lập
-lá số tử vi, theo thuật ngữ chuyên môn; và nhiều phụ nữ,
-vốn tự hào về địa vị và tài sản, nhìn xuống những kẻ
-tầm thường với sự khinh miệt tối thượng, lại cho thấy
-qua lòng tin này rằng sự phân biệt đó là tùy tiện, và họ
-chưa trau dồi tâm trí đủ để vượt lên trên những định
-kiến tầm thường. Phụ nữ, vì không được dẫn dắt để coi
-việc hiểu rõ bổn phận của mình là điều duy nhất cần biết,
-hoặc sống trong hiện tại bằng cách thực hiện bổn phận đó,
-nên rất nóng lòng nhìn trộm tương lai để biết họ phải
-mong đợi điều gì nhằm làm cho cuộc sống trở nên thú vị
-và lấp đầy khoảng trống của sự ngu muội. Tôi buộc phải
-nghiêm túc khiển trách những quý bà theo đuổi những phát minh
-hão huyền này; vì các quý bà, chủ nhân của gia đình, không
-cảm thấy xấu hổ khi tự lái xe đến tận cửa nhà một thầy
-bói. Và nếu bất kỳ ai trong số họ đọc tác phẩm này, tôi
-khẩn cầu họ hãy trả lời thật lòng với chính mình những
-câu hỏi sau đây, đừng quên rằng họ đang ở trước mặt Chúa.
-
-Bạn có tin rằng chỉ có một Thiên Chúa, và Ngài quyền năng,
-sáng suốt và nhân từ?
-
-Bạn có tin rằng mọi sự đều do Ngài tạo ra, và mọi sinh
-linh đều phụ thuộc vào Ngài?
-
-Bạn có tin cậy vào sự khôn ngoan của Ngài, điều hiển nhiên
-trong các tác phẩm của Ngài và trong chính cơ thể bạn, và
-bạn có tin chắc rằng Ngài đã sắp đặt mọi điều không
-nằm trong tầm nhận thức của giác quan theo cùng một sự hài
-hòa hoàn hảo để thực hiện những kế hoạch của Ngài?
-
-Bạn có thừa nhận rằng khả năng nhìn thấu tương lai và
-thấy những điều chưa xảy ra như thể chúng đang diễn ra là
-đặc quyền của Đấng Sáng Thế? Và nếu Ngài, thông qua ấn
-tượng trong tâm trí các tạo vật, thấy thích hợp truyền
-cho họ một sự kiện ẩn trong bóng tối của thời gian, vẫn
-chưa sinh ra, thì bí mật đó sẽ được tiết lộ thông qua linh
-cảm trực tiếp cho ai? Ý kiến của nhiều thế hệ sẽ trả
-lời câu hỏi này—cho những bậc trưởng thượng đáng kính,
-cho những người nổi bật vì lòng sùng đạo xuất chúng.
-
-Các lời sấm truyền ngày xưa được truyền đạt bởi các
-tư tế tận tụy phục vụ vị Thần được cho là đã khơi
-nguồn cảm hứng cho họ. Vẻ hào nhoáng của sự phô trương
-trần thế bao quanh những kẻ mạo danh này, và sự tôn trọng
-dành cho họ từ những chính trị gia xảo quyệt—những người
-biết cách lợi dụng công cụ hữu ích này để buộc những
-kẻ mạnh phải khuất phục dưới sự thống trị của những
-kẻ tinh ranh—đã phủ một bức màn thiêng liêng huyền bí
-lên những lời nói dối và sự ghê tởm của họ. Bị ấn
-tượng bởi sự phô trương sùng kính trang trọng như vậy,
-một quý bà Hy Lạp hay La Mã có thể được tha thứ nếu bà
-hỏi lời sấm truyền khi nóng lòng muốn biết tương lai hoặc
-truy vấn về một sự kiện mơ hồ: và những câu hỏi của bà,
-dù trái lý trí, không thể bị coi là bất kính. Nhưng những
-tín đồ Kitô giáo có thể gạt bỏ cáo buộc đó không? Một
-Kitô hữu có thể cho rằng những người được Chúa ưu ái
-nhất lại phải ẩn mình trong lốt ngụy trang, và thực hiện
-những mánh khóe gian dối nhất để lừa những phụ nữ khờ
-dại đưa tiền mà người nghèo hằng khao khát trong vô vọng?
-
-Đừng nói rằng những câu hỏi như vậy là sự sỉ nhục đối
-với lẽ thường vì chính hành vi của các bạn, hỡi những
-người phụ nữ khờ dại! mới đem lại nỗi ô nhục cho phái
-mình! Và những suy ngẫm này phải khiến các bạn rùng mình
-trước sự thiếu suy nghĩ và lòng sùng kính phi lý của mình,
-vì tôi không cho rằng tất cả các bạn đều gạt bỏ tôn giáo,
-dù là loại tôn giáo gì, khi bước vào những ngôi nhà huyền
-bí đó. Tuy nhiên, vì suốt cả bài tôi giả định mình đang nói
-với những người phụ nữ ngu muội—vì đúng là các bạn ngu
-muội theo nghĩa nhấn mạnh nhất của từ này—nên sẽ thật vô
-lý nếu dùng lý lẽ với các bạn về sự ngu ngốc trắng trợn
-khi khao khát biết điều mà Sự Khôn Ngoan Tối Cao đã che giấu.
-
-Có lẽ bạn sẽ không hiểu tôi, nếu tôi cố gắng chỉ ra
-cho bạn thấy rằng điều đó hoàn toàn mâu thuẫn với mục
-đích lớn lao của cuộc đời là khiến con người trở nên
-sáng suốt và đức hạnh: và rằng, nếu điều đó được Chúa
-chuẩn y, nó sẽ làm xáo trộn trật tự đã được thiết lập
-trong tạo hóa; còn nếu không được Chúa chuẩn y, bạn có mong
-nghe được sự thật? Những sự kiện chưa hình thành để có
-thể bị kiểm tra bởi con người liệu có thể được dự
-báo trước? Liệu chúng có thể được nhìn thấy bởi một
-kẻ trần tục độc ác, kẻ nuông chiều những ham muốn của
-mình bằng cách săn đuổi những kẻ khờ dại?
-
-Tuy nhiên, có lẽ bạn sùng kính tin vào quỷ dữ và tưởng
-tượng-để né tránh câu hỏi-rằng hắn có thể hỗ trợ những
-kẻ tôn thờ hắn? nhưng nếu thực sự tôn trọng quyền năng
-của một sinh thể như vậy, một kẻ thù của cái thiện và của
-Chúa, liệu bạn có thể đi lễ sau khi đã chịu ơn hắn. Từ
-những ảo giác này đến những sự lừa dối thời thượng
-hơn được thực hiện bởi toàn thể hội "nam châm trị liệu"
-(magnetisers), sự chuyển dịch là rất tự nhiên. Đối với họ,
-cũng thật thích hợp để hỏi phụ nữ vài câu hỏi.
-
-Bạn có biết gì về cấu tạo của cơ thể con người
-không? Nếu không, điều đúng đắn là bạn nên được cho
-biết điều mà mọi đứa trẻ đều nên biết: rằng khi sự
-vận hành tuyệt vời của cơ thể bị xáo trộn do thiếu điều
-độ hoặc lười nhác—tôi không nói đến những rối loạn
-cấp tính mà nói về các bệnh mãn tính—nó phải được
-đưa trở lại trạng thái khỏe mạnh một cách từ từ, và
-nếu các chức năng sống chưa bị tổn thương nghiêm trọng,
-thì chế độ ăn uống (một từ khác của sự điều độ),
-không khí, vận động, và một vài loại thuốc được kê
-đơn bởi những người đã nghiên cứu cơ thể con người là
-phương tiện nhân loại duy nhất từng được phát hiện để
-khôi phục phước lành vô giá là sức khỏe mà có khả năng
-chịu được sự kiểm chứng.
-
-Vậy bạn có tin rằng những kẻ nam châm trị liệu này, những
-kẻ dùng các mánh khóe phù phép giả vờ tạo ra phép màu,
-được Chúa ủy quyền hoặc được hỗ trợ bởi kẻ giải
-quyết mọi loại khó khăn này—quỷ dữ.
-
-Khi họ, như lời kể, xua đuổi những rối loạn đã làm nản
-lòng các năng lực của y học, liệu họ có làm việc theo ánh
-sáng của lý trí? Hay họ thực hiện những ca chữa trị kỳ
-diệu này bằng sự trợ giúp siêu nhiên?
-
-Một chuyên gia có thể trả lời rằng đó là qua sự giao tiếp
-với thế giới tâm linh. Phải thừa nhận đó là một đặc
-quyền cao quý. Một số người xưa đề cập đến các ác quỷ
-thân cận, những kẻ bảo vệ họ khỏi nguy hiểm bằng cách
-báo trước (chúng ta không biết theo cách nào) khi có nguy hiểm
-cận kề; hoặc chỉ ra điều họ nên thực hiện. Thế nhưng
-những người tuyên bố có đặc quyền này, trái với trật
-tự tự nhiên, đã nhấn mạnh rằng đó là phần thưởng hoặc
-hệ quả của sự điều độ và sùng đạo vượt trội. Nhưng
-những kẻ tạo ra phép màu hiện nay không hề đứng cao hơn
-bạn bè họ bằng sự điều độ hay lòng thành kính vượt
-trội. Họ không chữa bệnh vì tình yêu dành cho Chúa mà vì
-tiền. Đây là những tư tế của nghề lang băm, dù đúng là
-họ không có phương tiện thuận lợi như bán lễ cầu hồn
-cho các linh hồn nơi luyện ngục, hay xây nhà thờ nơi họ có
-thể trưng bày nạng gỗ và những mẫu chi bị què được chữa
-lành bằng một cái chạm hay một lời nói.
-
-Tôi không thông thạo các thuật ngữ chuyên môn, cũng không
-được khởi xướng vào những bí mật, vì vậy tôi có thể
-nói không chính xác; nhưng rõ ràng là những kẻ không tuân theo
-luật lý trí và không kiếm sống một cách lương thiện từng
-bước một lại rất may mắn khi quen biết những linh hồn tận
-tâm như vậy. Thật vậy, chúng ta không thể ghi nhận cho họ
-sự sáng suốt hay lòng tốt lớn lao, nếu không họ đã chọn
-những công cụ cao quý hơn khi muốn thể hiện mình là bạn
-hữu nhân từ của con người.
-
-Tuy nhiên, việc giả vờ có quyền năng như vậy gần như là
-một sự báng bổ.
-
-Từ toàn bộ tiến trình sắp đặt của Chúa, lý trí tỉnh
-táo thấy rõ rằng những thói hư nhất định tạo ra những
-hiệu quả nhất định: và liệu có ai sỉ nhục sự khôn ngoan
-của Chúa đến mức cho rằng một phép màu sẽ được cho phép
-làm xáo trộn các quy luật chung của Ngài để khôi phục sức
-khỏe cho kẻ thiếu điều độ và độc ác, chỉ để cho phép
-họ tiếp tục con đường đó mà không bị trừng phạt? "Hãy
-bình an và chớ phạm tội nữa," Chúa Giêsu đã nói. Và liệu
-những phép màu lớn hơn sẽ được thực hiện bởi những kẻ
-không theo dấu chân Ngài, người đã chữa lành thân thể để
-chạm tới tâm hồn?
-
-Việc nhắc đến tên Đấng Christ sau những kẻ mạo danh hèn
-hạ như vậy có thể làm một số độc giả của tôi khó
-chịu—tôi tôn trọng sự nóng nảy của họ; nhưng đừng quên
-rằng những kẻ theo đuổi những ảo giác này mang tên Ngài,
-và tuyên bố là môn đồ của Đấng đã nói rằng qua việc
-làm của họ chúng ta sẽ biết ai là con cái Chúa hay đầy
-tớ của tội lỗi. Tôi thừa nhận rằng chạm vào thân thể
-một vị thánh hoặc được nam châm trị liệu dễ hơn nhiều
-so với việc kiềm chế ham muốn hoặc điều khiển đam mê;
-nhưng sức khỏe cơ thể hay tâm trí chỉ có thể được khôi
-phục bằng những phương tiện này, nếu không chúng ta sẽ coi
-Thẩm phán Tối cao là một kẻ thiên vị và thù hận.
-
-Ngài có phải là con người mà Ngài lại thay đổi hoặc trừng
-phạt vì oán hằn? Ngài—người cha chung, gây thương tổn
-chỉ để chữa lành, lý trí nói vậy, và những bất thường
-của chúng ta tạo ra những hệ quả nhất định, chúng ta bị
-buộc phải thấy bản chất của thói hư; nhờ đó khi học
-cách phân biệt tốt xấu qua trải nghiệm, ta có thể ghét
-điều một và yêu điều kia tùy theo mức độ khôn ngoan mà ta
-đạt được. Chất độc chứa thuốc giải; và hoặc là ta cải
-thiện những thói quen xấu, ngừng phạm tội chống lại chính
-cơ thể mình—dùng ngôn ngữ mạnh mẽ của kinh thánh—hoặc
-cái chết sớm, hình phạt của tội lỗi, sẽ cắt đứt sợi
-dây sự sống.
-
-Ở đây, một điểm dừng đáng sợ được đặt ra cho những
-truy vấn của chúng ta. Nhưng tại sao tôi phải che giấu cảm
-xúc của mình? Cân nhắc các thuộc tính của Chúa, tôi tin rằng
-bất kỳ hình phạt nào theo sau cũng sẽ có xu hướng, giống như
-nỗi đau đớn của bệnh tật, chỉ ra sự độc hại của thói
-hư nhằm mục đích cải tạo. Hình phạt thuần túy dường như
-quá trái ngược với bản chất của Chúa, điều có thể tìm
-thấy trong mọi tác phẩm của Ngài và trong lý trí của chính
-chúng ta, đến mức tôi dễ tin rằng Thượng đế không quan
-tâm đến hành vi của con người hơn là tin rằng Ngài trừng
-phạt mà không có ý định nhân từ là để cải tạo.
-
-Chỉ riêng việc cho rằng một Sinh thể toàn năng, sáng suốt
-và nhân từ như vĩ đại, lại tạo ra một sinh thể mà biết
-trước rằng sau năm mươi hoặc sáu mươi năm tồn tại đầy
-sốt sắng, nó sẽ bị nhấn chìm trong nỗi khổ không bao
-giờ kết thúc—là sự báng bổ. Con sâu nào sẽ ăn những
-thứ không bao giờ chết? Ăn sự ngu muội, ăn sự vô tri, bạn
-nói vậy sao—tôi sẽ đỏ mặt vì phẫn nộ khi rút ra kết
-luận tự nhiên đó nếu tôi có thể đưa nó vào và mong muốn
-rời bỏ sự che chở của Chúa tôi! Với giả định như vậy,
-tôi xin nói một cách tôn kính, Ngài sẽ là ngọn lửa thiêu
-rụi. Chúng ta sẽ ước, dù vô ích, được trốn khỏi sự
-hiện diện của Ngài khi nỗi sợ dập tắt tình yêu và bóng
-tối bao phủ mọi lời khuyên của Ngài.
-
-Tôi biết nhiều người sùng đạo tự hào về việc vâng phục
-Ý muốn của Chúa một cách mù quáng, như đối với một quyền
-trượng hoặc cây gậy tùy tiện, theo cùng nguyên lý mà người
-Ấn Độ tôn thờ quỷ dữ. Nói cách khác, giống như mọi
-người trong các mối quan tâm thông thường của cuộc sống,
-họ tôn kính quyền lực và khúm núm dưới bàn chân có thể
-nghiền nát họ. Tôn giáo lý trí, ngược lại, là sự phục
-tùng ý chí của một sinh thể sáng suốt đến mức hoàn hảo,
-nên tất cả những gì Ngài muốn phải được dẫn dắt bởi
-động cơ đúng đắn—phải hợp lý.
-
-Và nếu chúng ta tôn trọng Chúa như vậy, liệu ta có thể
-tin vào những lời xúi giục bí ẩn sỉ nhục luật lệ của
-Ngài? Liệu ta có tin rằng Ngài sẽ thực hiện một phép màu
-để cho phép sự hỗn loạn bằng cách chuẩn y một sai lầm,
-ngay cả khi điều đó hiển hiện trước mặt ta? Thế nhưng
-ta phải hoặc là chấp nhận những kết luận bất kính này,
-hoặc coi thường mọi lời hứa khôi phục sức khỏe cho cơ
-thể bệnh tật bằng phương tiện siêu nhiên, hoặc tiên đoán
-những sự kiện vốn chỉ Chúa mới biết trước.
-
-PHẦN 13.2.
-
-Một ví dụ khác về sự yếu đuối trong nhân cách nữ giới,
-thường do giáo dục hạn hẹp tạo ra, là một xu hướng lãng
-mạn của tâm trí, điều mà đã được gọi một cách chính
-xác là "SANG TRỌNG HÓA CẢM XÚC" (SENTIMENTAL).
-
-Phụ nữ, bị sự ngu muội khuất phục trước những cảm
-giác, và chỉ được dạy tìm kiếm hạnh phúc trong tình yêu,
-thường trau chuốt những cảm xúc xác thịt và áp dụng các
-khái niệm siêu hình về đam mê đó, điều dẫn dắt họ bỏ
-bê một cách đáng hổ thẹn những bổn phận của cuộc đời,
-và thường giữa những sự tinh luyện cao siêu này họ rơi vào
-thói hư thực sự.
-
-Đây là những phụ nữ bị thu hút bởi những mộng tưởng
-của những nhà tiểu thuyết đần độn, những kẻ biết rất
-ít về bản chất con người nhưng lại xào nấu những câu
-chuyện cũ rích và mô tả những khung cảnh xa hoa giả tạo,
-tất cả được kể bằng một thứ ngôn ngữ cảm xúc sáo
-rỗng, vừa làm hư hỏng gu thẩm mỹ, vừa kéo trái tim rời xa
-bổn phận hàng ngày. Tôi không nhắc đến trí hiểu vì chưa bao
-giờ được vận dụng nên năng lượng ngủ quên của nó vẫn
-bất động, giống như những hạt lửa ẩn giấu vốn được
-cho là tồn tại phổ biến trong vật chất.
-
-Phụ nữ, thực tế, bị tước mọi đặc quyền chính trị và
-không được phép có một sự hiện diện dân sự khi đã kết
-hôn (trừ trong các vụ án hình sự), nên sự chú ý của họ
-tự nhiên bị kéo từ lợi ích của toàn thể cộng đồng sang
-những chi tiết nhỏ nhặt, mặc dù bổn phận tư gia của bất
-kỳ thành viên nào trong xã hội cũng sẽ được thực hiện
-rất thiếu sót nếu không gắn kết với lợi ích chung. Công
-việc to lớn của cuộc đời phụ nữ là làm hài lòng người
-khác, và khi bị ngăn cản tham gia vào những mối quan tâm quan
-trọng hơn bởi sự áp chế chính trị và dân sự, cảm xúc
-trở thành các sự kiện, và sự suy ngẫm làm sâu sắc thêm
-những điều mà lẽ ra nó nên xóa bỏ nếu trí hiểu được
-phép mở rộng phạm vi.
-
-Nhưng khi bị giới hạn trong những công việc tầm thường, họ
-tự nhiên tiếp nhận những ý kiến mà loại sách duy nhất có
-khả năng thu hút một tâm hồn ngây thơ phù phiếm truyền cảm
-hứng. Không thể nắm bắt bất cứ điều gì vĩ đại, liệu
-có đáng ngạc nhiên không khi họ thấy đọc lịch sử là một
-công việc rất khô khan, và các luận thuyết hướng tới trí
-hiểu là tẻ nhạt không chịu nổi và gần như không thể hiểu
-được? Vì vậy, họ tất yếu phải phụ thuộc vào nhà tiểu
-thuyết để giải trí. Tuy nhiên, khi tôi lên án tiểu thuyết,
-ý tôi là khi đặt chúng tương phản với những tác phẩm
-rèn luyện trí hiểu và điều chỉnh trí tưởng tượng. Vì
-tôi nghĩ bất kỳ loại sách nào cũng tốt hơn là để một
-khoảng trống mãi là khoảng trống, bởi tâm trí phải nhận
-được sự mở mang nhất định và đạt được một chút sức
-mạnh thông qua nỗ lực suy nghĩ nhẹ nhàng; vả lại, ngay cả
-những tác phẩm chỉ hướng tới trí tưởng tượng cũng nâng
-người đọc lên cao hơn một chút so với sự thỏa mãn thô
-thiển của ham muốn mà tâm trí chưa có lấy một chút tinh tế.
-
-Quan sát này là kết quả của kinh nghiệm; vì tôi đã biết
-vài phụ nữ đáng chú ý, và đặc biệt là một người phụ
-nữ rất tốt—tốt đến mức một tâm hồn hẹp hòi cho phép
-bà ấy tốt—người đã chăm sóc để các con gái (ba người)
-không bao giờ được xem tiểu thuyết. Vì bà là một phụ nữ
-giàu có và sành điệu, họ có nhiều gia sư chăm sóc và một
-loại quản gia thấp kém theo dõi bước chân họ. Từ các gia
-sư, họ học cách gọi bàn, ghế, v.v. bằng tiếng Pháp và Ý;
-nhưng vì số ít những cuốn sách được đưa cho họ đều
-vượt quá khả năng hoặc là sách sùng đạo, nên họ không
-đạt được ý niệm hay tình cảm nào, và dành thời gian—khi
-không bị buộc phải đọc thuộc LỜI NÓI—để ăn diện,
-cãi vã với nhau, hoặc lén lút trò chuyện với những người
-hầu cho đến khi họ đủ tuổi để ra mắt.
-
-Mẹ họ, một góa phụ, trong thời gian đó bận rộn duy trì
-các mối quan hệ xã hội, như bà gọi là sự quen biết rộng
-rãi để các con gái không thiếu một sự giới thiệu phù
-hợp vào thế giới thượng lưu. Và những quý cô trẻ này,
-với tâm trí tầm thường theo mọi nghĩa của từ này và tính
-cách bị làm hư, bước vào đời với niềm tự hào về vị
-thế của chính mình, nhìn xuống với sự khinh miệt những ai
-không thể cạnh tranh với họ về trang phục và phô trương.
-
-Về tình yêu, thiên nhiên hoặc những vú em đã chăm sóc dạy
-họ ý nghĩa vật chất của từ đó; và vì có ít chủ đề
-trò chuyện và càng ít sự tinh tế trong tình cảm, họ thể
-hiện những mong muốn thô thiển không bằng những cụm từ
-quá tinh tế khi họ nói chuyện thoải mái về hôn nhân.
-
-Liệu những cô gái này có bị tổn hại bởi việc đọc tiểu
-thuyết? Tôi gần như quên một nét trong tính cách của một
-người trong số họ; cô ấy giả vờ đơn giản đến mức
-ngớ ngẩn, và với nụ cười mỉm sẽ thốt ra những nhận
-xét và câu hỏi khiếm nhã nhất mà ý nghĩa đầy đủ của
-chúng cô đã học được khi bị tách biệt khỏi thế giới và
-sợ nói trước mặt người mẹ cai trị nghiêm khắc; họ đều
-được giáo dục, như bà tự hào, một cách mẫu mực nhất;
-đọc các chương Kinh thánh và Thánh vịnh trước bữa sáng,
-không bao giờ chạm vào một cuốn tiểu thuyết ngớ ngẩn.
-
-Đây chỉ là một ví dụ; nhưng tôi nhớ nhiều phụ nữ khác,
-do không được dẫn dắt dần dần đến những nghiên cứu phù
-hợp và không được phép tự lựa chọn cho mình, thực sự
-đã trở thành những đứa trẻ lớn xác; hoặc thông qua việc
-hòa nhập với thế giới, đạt được một chút cái gọi là
-lẽ thường—nghĩa là cách nhìn rõ ràng về các hiện tượng
-phổ biến khi chúng đứng tách biệt: nhưng điều xứng đáng
-với tên gọi trí tuệ, khả năng đạt được các ý niệm
-chung hoặc trừu tượng, thậm chí cả những ý niệm trung gian,
-là điều không thể. Tâm trí họ tĩnh lặng, và khi không bị
-kích thích bởi những đối tượng và công việc cảm tính,
-họ trở nên chán nản, khóc lóc hoặc đi ngủ.
-
-Vì vậy, khi tôi khuyên phái mình không đọc những tác phẩm
-hời hợt như vậy, là để thúc đẩy họ đọc một điều gì
-đó ưu việt hơn; vì tôi đồng quan điểm với một người đàn
-ông sáng suốt, người có con gái và cháu gái dưới sự chăm
-sóc của mình, đã áp dụng kế hoạch rất khác cho mỗi người.
-
-Đứa cháu gái, vốn có năng lực đáng kể, trước khi được
-giao cho ông bảo hộ đã thích đọc sách tùy hứng. Ông nỗ
-lực dẫn dắt cô, và đã thành công đưa cô đến với lịch
-sử và các tiểu luận đạo đức; nhưng con gái ông, người
-bị một bà mẹ nuông chiều mù quáng chăm sóc nên không thích
-bất cứ điều gì giống như sự chuyên cần, thì ông cho phép
-đọc tiểu thuyết; và thường biện minh cho hành vi của mình
-rằng nếu cô bé đạt được niềm yêu thích đọc chúng, ông
-sẽ có cơ sở để làm việc; và những ý kiến sai lầm vẫn
-tốt hơn là không có ý kiến nào.
-
-Thực tế, tâm trí phụ nữ bị bỏ bê hoàn toàn đến mức
-kiến thức chỉ có thể thu được từ nguồn đục ngầu này
-cho đến khi thông qua việc đọc tiểu thuyết, một số phụ
-nữ tài năng ưu việt học cách khinh thường chúng.
-
-Phương pháp tốt nhất tôi tin rằng có thể áp dụng để
-sửa thói nghiện tiểu thuyết là chế giễu chúng; không phải
-một cách bừa bãi vì như vậy sẽ ít hiệu quả; mà nếu một
-người sáng suốt, có khiếu hài hước đọc vài cuốn cho một
-cô gái trẻ và chỉ ra, bằng giọng điệu cũng như những so
-sánh khéo léo với các sự kiện cảm động và nhân vật anh
-hùng trong lịch sử, họ đã châm biếm bản chất con người
-một cách ngớ ngẩn và nực cười thế nào, thì những quan
-điểm đúng đắn có thể thay thế những tình cảm lãng mạn.
-
-Ở một phương diện, đa số cả hai giới đều giống nhau và
-cùng cho thấy sự thiếu gu thẩm mỹ và khiêm tốn. Phụ nữ
-ngu muội, bị buộc phải giữ tiết hạnh để bảo vệ danh
-tiếng, cho phép trí tưởng tượng của mình đắm chìm trong
-những cảnh không tự nhiên và giả tạo được phác thảo bởi
-các nhà tiểu thuyết thời bấy giờ, coi sự tôn nghiêm chừng
-mực và nét duyên dáng mẫu mực của lịch sử* là nhạt nhẽo,
-trong khi đàn ông mang gu thẩm mỹ bị hư hỏng đó vào cuộc
-sống và tìm đến những kẻ lăng loàn để giải trí thay vì
-những sức quyến rũ không giả tạo của đức hạnh và sự
-tôn kính trang trọng của trí tuệ.
-
-(*Chú thích. Tôi hiện không ám chỉ đến sự ưu việt về tâm
-hồn dẫn đến việc tạo ra vẻ đẹp lý tưởng, khi cuộc
-đời được quan sát bằng con mắt xuyên thấu hiện lên như
-một vở bi hài kịch mà ít điều có thể làm thỏa mãn trái
-tim nếu thiếu sự trợ giúp của trí tưởng tượng.)
-
-Bên cạnh đó, việc đọc tiểu thuyết khiến phụ nữ, đặc
-biệt là các quý bà sành điệu, rất thích dùng những từ ngữ
-mạnh và lời lẽ cực đoan trong giao tiếp; và mặc dù cuộc
-sống giả tạo phóng túng mà họ dẫn dắt ngăn cản họ nuôi
-dưỡng bất kỳ đam mê chính đáng mãnh liệt nào, ngôn ngữ của
-đam mê với giọng điệu làm dáng cứ thế tuôn ra từ chiếc
-lưỡi trôi chảy, và mọi điều nhỏ nhặt đều tạo ra những
-tia lửa phốt pho chỉ mô phỏng ngọn lửa đam mê trong bóng tối.
-
-PHẦN 13.3.
-
-Sự ngu muội và sự khôn lỏi sai lầm mà thiên nhiên mài sắc
-trong những cái đầu yếu ớt như một nguyên lý tự vệ khiến
-phụ nữ rất thích ăn diện, và tạo ra tất cả sự phù phiếm
-mà một niềm đam mê như vậy tự nhiên sinh ra, loại trừ đi
-sự thi đua và lòng hào hiệp.
-
-Tôi đồng ý với Rousseau rằng phần vật chất của nghệ thuật
-gây thu hút nằm ở những đồ trang sức, và chính vì lý do
-đó tôi sẽ bảo vệ các cô gái khỏi niềm đam mê ăn diện
-dễ lây lan vốn quá phổ biến ở những phụ nữ yếu đuối,
-để họ không dừng lại ở phần vật chất. Tuy nhiên, thật
-yếu đuối cho những người phụ nữ tưởng rằng mình có thể
-làm hài lòng lâu dài mà không có sự trợ giúp của tâm trí;
-hay nói cách khác là thiếu nghệ thuật gây thu hút về đạo
-đức. Nhưng nghệ thuật đạo đức—nếu việc dùng từ "nghệ
-thuật" không phải là một sự báng bổ khi ám chỉ vẻ duyên
-dáng là kết quả của đức hạnh chứ không phải động cơ
-hành động—không bao giờ tìm thấy ở những kẻ ngu muội;
-sự hồn nhiên vui tươi vốn khiến những kẻ phóng túng tinh
-tế của cả hai giới hài lòng khác xa về bản chất với vẻ
-duyên dáng ưu việt này.
-
-Sự thiên hướng mạnh mẽ đối với các đồ trang sức bên
-ngoài luôn xuất hiện trong các trạng thái man rợ, chỉ có đàn
-ông chứ không phải phụ nữ tự trang điểm; vì nơi nào phụ
-nữ được phép bình đẳng với nam giới ở mức độ đó thì
-xã hội đã tiến một bước trong văn minh.
-
-Vì vậy, sự chú ý đến trang phục, vốn bị coi là thiên hướng
-giới tính, tôi nghĩ là tự nhiên đối với con người. Nhưng
-tôi cần diễn đạt chính xác hơn. Khi tâm trí không được
-mở mang đủ để tìm thấy niềm vui trong suy ngẫm, cơ thể
-sẽ được chăm sóc tỉ mỉ; và tham vọng sẽ xuất hiện qua
-việc xăm mình hoặc tô vẽ.
-
-Thiên hướng đầu tiên này mạnh đến nỗi ngay cả cái ách
-địa ngục của chế độ nô lệ cũng không thể dập tắt khát
-khao ngưỡng mộ hoang dã mà những anh hùng da đen thừa hưởng
-từ cha mẹ họ, vì tất cả số tiền tiết kiệm khó nhọc
-của một nô lệ thường được chi cho những món đồ trang
-sức rẻ tiền. Và tôi hiếm khi biết một người hầu nam hay
-nữ tốt nào lại không đặc biệt thích ăn diện. Quần áo là
-tài sản của họ; và tôi lập luận theo phép tương tự rằng
-niềm đam mê ăn diện quá mức ở phụ nữ nảy sinh từ cùng
-một nguyên nhân—thiếu sự trau dồi tâm trí. Khi đàn ông gặp
-nhau, họ trò chuyện về công việc, chính trị hoặc văn chương;
-nhưng như Swift nói, "phụ nữ áp tay vào những dải ruy băng và
-bèo nhún của nhau một cách tự nhiên làm sao." Và điều đó
-rất tự nhiên—vì họ không có công việc nào khiến họ quan
-tâm, không có gu thẩm mỹ về văn chương, và thấy chính trị
-khô khan vì họ chưa đạt được tình yêu dành cho nhân loại
-bằng cách hướng suy nghĩ đến những mục tiêu cao cả nâng
-tầm nòi giống và thúc đẩy hạnh phúc chung.
-
-Bên cạnh đó, con đường dẫn đến quyền lực và danh tiếng
-là đa dạng, do tình cờ hoặc lựa chọn mà đàn ông theo đuổi,
-và dù họ va chạm với nhau—vì những người cùng nghề hiếm
-khi là bạn—nhưng số lượng đồng loại mà họ không bao giờ
-xung đột lại lớn hơn nhiều. Nhưng phụ nữ ở trong một vị
-thế rất khác đối với nhau—vì tất cả đều là đối thủ.
-
-Trước khi kết hôn, công việc của họ là làm hài lòng đàn
-ông; và sau đó, trừ một vài ngoại lệ, họ theo đuổi cùng
-một mục tiêu với tất cả sự kiên trì của bản năng. Ngay
-cả những phụ nữ đức hạnh cũng không bao giờ quên giới
-tính mình trong xã hội, vì họ luôn cố gắng khiến bản thân
-trở nên DỄ CHỊU (AGREEABLE). Một vẻ đẹp nữ giới và một
-trí tuệ nam giới dường như đều nóng lòng thu hút sự chú
-ý của mọi người về phía mình; và sự thù ghét giữa các
-trí thức cùng thời là điều hiển nhiên.
-
-Vậy thì có gì ngạc nhiên khi tham vọng duy nhất của phụ
-nữ tập trung vào vẻ đẹp, và lợi ích tiếp thêm sức mạnh
-cho sự phù phiếm, dẫn đến những cuộc đối đầu vĩnh
-viễn? Tất cả đều chạy cùng một cuộc đua, và sẽ vượt
-lên trên đức hạnh của phàm nhân nếu họ không nhìn nhau
-bằng ánh mắt nghi ngại và thậm chí là đố kỵ.
-
-Sự đam mê quá mức với trang phục, khoái lạc và quyền lực
-là những đam mê của kẻ man rợ; những đam mê chiếm lấy
-những sinh thể chưa văn minh vốn chưa mở rộng sự thống
-trị của tâm trí, hoặc thậm chí chưa học được cách suy
-nghĩ với năng lượng cần thiết để kết nối chuỗi tư duy
-trừu tượng tạo ra các nguyên lý. Và việc phụ nữ, từ giáo
-dục và trạng thái hiện tại của cuộc sống văn minh, cũng
-ở trong tình trạng tương tự là điều tôi nghĩ không thể
-chối cãi. Vậy nên cười nhạo họ hoặc châm biếm sự ngu
-muội của một sinh thể không bao giờ được phép hành động
-tự do theo ánh sáng lý trí của chính mình là vừa vô lý vừa
-tàn nhẫn; vì những kẻ được dạy vâng lời chính quyền một
-cách mù quáng sẽ tìm cách khôn lỏi để lẩn tránh điều đó,
-là điều tự nhiên và chắc chắn nhất.
-
-Tuy nhiên, nếu chứng minh được họ phải vâng lời nam giới
-tuyệt đối, tôi sẽ ngay lập tức đồng ý rằng bổn phận
-của phụ nữ là nuôi dưỡng niềm đam mê ăn diện để làm
-hài lòng và xu hướng khôn lỏi để tự bảo vệ mình.
-
-Thế nhưng những đức hạnh vốn dựa trên sự ngu muội sẽ
-luôn dao động—ngôi nhà xây trên cát không thể chịu được
-cơn bão. Gần như không cần phải suy luận thêm. Nếu phụ nữ
-được làm cho trở nên đức hạnh bằng quyền uy—điều này
-là mâu thuẫn về thuật ngữ—hãy nhốt họ trong các hậu cung
-và canh chừng với ánh mắt ghen tuông. Đừng sợ rằng xiềng
-xích sẽ thấm vào linh hồn họ—vì những linh hồn có thể
-chịu đựng sự đối xử như vậy được làm từ vật liệu
-dễ uốn, chỉ vừa đủ sống để duy trì cơ thể.
-
-"Vật chất quá mềm không thể lưu lại dấu vết vĩnh cửu,
-Và phân biệt rõ nhất bằng màu đen, nâu hoặc trắng."
-
-Những vết thương tàn khốc nhất tất nhiên sẽ sớm lành,
-và họ vẫn có thể làm đầy thế giới này và ăn diện để
-làm hài lòng đàn ông—tất cả những mục đích mà một số
-nhà văn nổi tiếng cho rằng họ được tạo ra để thực hiện.
-
-PHẦN 13.4.
-
-Phụ nữ được cho là sở hữu sự nhạy cảm, và thậm chí là
-nhân tính, nhiều hơn đàn ông, và những sự gắn bó mạnh mẽ
-cùng những cảm xúc trắc ẩn tức thời được đưa ra làm minh
-chứng; nhưng tình cảm bám víu của sự ngu muội hiếm khi có
-điều gì cao quý, và hầu hết chỉ là sự ích kỷ, cũng như
-tình cảm của trẻ em và loài vật. Tôi biết nhiều phụ nữ
-yếu đuối mà sự nhạy cảm hoàn toàn bị chiếm hữu bởi
-chồng họ; và về nhân tính thì thật mờ nhạt, hoặc đúng
-hơn đó chỉ là một cảm xúc trắc ẩn thoáng qua," Nhân tính
-không nằm ở cái tai dễ bị kích động," một diễn giả lỗi
-lạc nói. "Nó thuộc về tâm trí cũng như hệ thần kinh."
-
-Nhưng loại tình cảm độc tôn này, dù làm hạ thấp cá nhân,
-không nên được đưa ra làm bằng chứng cho sự thấp kém
-của giới tính, vì đó là hệ quả tự nhiên của tầm nhìn
-hạn hẹp: vì thậm chí những phụ nữ có lý trí ưu việt, khi
-bị buộc phải dành sự chú ý cho những công việc nhỏ nhặt
-và các kế hoạch riêng tư, hiếm khi đạt đến mức anh hùng,
-trừ khi được thúc đẩy bởi tình yêu; và tình yêu như một
-đam mê anh hùng, giống như thiên tài, chỉ xuất hiện một lần
-trong một thế hệ. Vì vậy tôi đồng ý với nhà đạo đức
-học khẳng định rằng "phụ nữ hiếm khi có lòng hào hiệp
-như đàn ông"; và những tình cảm hẹp hòi của họ, nơi công
-lý và nhân tính thường bị hy sinh, khiến phái nữ dường như
-thấp kém hơn, đặc biệt là vì họ thường được truyền
-cảm hứng bởi đàn ông; nhưng tôi cho rằng trái tim sẽ mở
-rộng khi trí hiểu tăng cường sức mạnh nếu phụ nữ không
-bị áp chế từ trong nôi.
-
-Tôi biết rằng một chút nhạy cảm và sự yếu đuối lớn
-sẽ tạo ra một sự gắn bó giới tính mạnh mẽ, và lý trí
-phải là chất kết dính tình bạn; hệ quả là tôi thừa nhận
-rằng tìm thấy nhiều tình bạn ở thế giới nam giới hơn nữ
-giới, và đàn ông có ý thức cao hơn về công lý. Tình cảm
-độc tôn của phụ nữ thực sự giống như tình yêu bất công
-nhất của Cato dành cho đất nước mình. Ông muốn nghiền nát
-Carthage không phải để cứu Rome mà để thúc đẩy vinh quang
-hão huyền của nó; và nhìn chung, chính những nguyên lý tương
-tự khiến nhân tính bị hy sinh, vì những bổn phận đích thực
-luôn hỗ trợ lẫn nhau.
-
-Bên cạnh đó, làm sao phụ nữ có thể công bằng hoặc hào
-hiệp khi họ là nô lệ của sự bất công.
-
-PHẦN 13.5.
-
-Vì việc nuôi dạy trẻ em, tức là đặt nền móng cho sức
-khỏe tốt cả về thể chất và tâm trí cho thế hệ mai sau,
-đã được nhấn mạnh một cách chính đáng là đích đến
-đặc thù của phụ nữ, nên sự ngu muội làm họ mất năng
-lực phải trái với trật tự vạn vật. Và tôi khẳng định
-rằng tâm trí họ có thể tiếp thu nhiều hơn, và nên như vậy,
-nếu không họ sẽ không bao giờ trở thành những người mẹ
-sáng suốt. Nhiều đàn ông chăm lo việc nuôi ngựa và bỏ bê
-việc quản lý chuồng ngựa, những kẻ—thật thiếu sáng suốt
-và cảm xúc đến lạ lùng!—nghĩ rằng mình bị hạ thấp khi
-quan tâm đến phòng trẻ; thế nhưng có biết bao đứa trẻ bị
-giết hại tuyệt đối bởi sự ngu muội của phụ nữ! Nhưng
-khi chúng thoát nạn, và không bị hủy hoại bởi sự bỏ bê
-trái tự nhiên hay lòng mến mù quáng, thì có bao nhiêu đứa
-trẻ được quản lý đúng mực về tâm trí sơ sinh! Đến
-nỗi để bẻ gãy tinh thần vốn đã trở nên hư hỏng ở nhà,
-một đứa trẻ bị gửi đến trường; và những phương pháp
-áp dụng ở đó, vốn phải thực hiện để giữ trật tự cho
-nhiều đứa trẻ, lại gieo rắc hạt giống của hầu hết mọi
-thói hư vào mảnh đất vừa bị xới tung bạo lực.
-
-Tôi đôi khi so sánh cuộc đấu tranh của những đứa trẻ tội
-nghiệp này—những đứa trẻ lẽ ra không bao giờ phải cảm
-thấy sự kiềm chế, và sẽ không cảm thấy nếu luôn được
-dẫn dắt bằng một bàn tay ôn hòa—với những cú nhảy tuyệt
-vọng của một con ngựa con sôi nổi mà tôi từng thấy bị
-khuất phục trên một bãi cát; chân nó lún sâu hơn và sâu hơn
-vào cát mỗi khi nó cố hất người cưỡi, cho đến khi cuối
-cùng nó cam chịu một cách uể oải.
-
-Tôi luôn thấy ngựa, loài vật mà tôi gắn bó, rất dễ bảo
-khi được đối xử nhân đạo và kiên định, nên tôi nghi ngờ
-liệu những phương pháp bạo lực dùng để khuất phục chúng
-có gây tổn thương thực sự cho chúng hay không; tuy nhiên tôi
-chắc chắn rằng một đứa trẻ không bao giờ nên bị thuần
-hóa bạo lực như vậy sau khi đã bị cho phép chạy rông một
-cách thiếu sáng suốt; vì mọi hành vi vi phạm công lý và
-lý trí trong việc đối xử với trẻ em đều làm suy yếu lý
-trí của chúng. Và chúng hình thành tính cách sớm đến mức,
-kinh nghiệm dẫn tôi tới kết luận rằng nền tảng của nhân
-cách đạo đức được cố định trước năm bảy tuổi, giai
-đoạn mà phụ nữ được giao toàn quyền quản lý con cái. Sau
-đó thường xảy ra chuyện một nửa công việc giáo dục là
-để sửa sai, và việc đó được thực hiện rất thiếu sót
-nếu làm vội vàng, những lỗi lầm mà chúng sẽ không bao giờ
-mắc phải nếu mẹ chúng có trí hiểu hơn.
-
-Một ví dụ điển cực về sự ngu muội của phụ nữ không
-thể bỏ qua. Cách họ đối xử với người hầu trước mặt
-con cái, cho phép trẻ tin rằng họ nên phục vụ mình và chịu
-đựng tính khí của mình. Một đứa trẻ luôn phải nhận được
-sự hỗ trợ từ một người nam hay nữ như một đặc ân; và
-như bài học đầu tiên về sự độc lập, chúng nên được
-dạy bằng ví dụ của mẹ mình không đòi hỏi sự phục vụ
-cá nhân vốn là một sự sỉ nhục đối với nhân tính khi
-đang khỏe mạnh; và thay vì bị dẫn dắt để lên mặt kiêu
-ngạo, ý thức về sự yếu đuối của chính mình trước hết
-phải khiến chúng cảm nhận được sự bình đẳng tự nhiên
-của con người. Thế nhưng tôi đã thường xuyên phẫn nộ nghe
-thấy những người hầu bị gọi một cách hách dịch để đưa
-trẻ đi ngủ, và bị đuổi đi hết lần này đến lần khác
-vì chủ nhỏ hay cô tiểu thư cứ quẩn quanh bên mẹ để đòi
-ở lại thêm chút nữa. Bị buộc phải phục vụ thần tượng
-nhỏ một cách nô lệ như vậy, tất cả những tính khí đáng
-ghét nhất đã hiện ra—điều đặc trưng cho một đứa trẻ
-bị nuông chiều quá mức.
-
-Tóm lại, nói về đa số các bà mẹ, họ phó mặc con cái
-hoàn toàn cho người hầu; hoặc vì là con mình nên đối xử
-với chúng như những á thần nhỏ, dù tôi luôn quan sát thấy
-rằng những phụ nữ tôn thờ con cái theo cách này hiếm khi
-thể hiện lòng nhân từ phổ biến đối với người hầu,
-hoặc cảm thấy chút dịu dàng nào đối với bất kỳ đứa
-trẻ nào khác ngoài con mình.
-
-Tuy nhiên, chính những tình cảm độc tôn này và cách nhìn
-nhận sự vật mang tính cá nhân do sự ngu muội tạo ra đã
-khiến phụ nữ mãi đứng yên không cải thiện, và khiến nhiều
-người trong số họ dành cả đời cho con cái chỉ để làm suy
-yếu thể chất và làm hư tính cách của trẻ, đồng thời phá
-hỏng bất kỳ kế hoạch giáo dục nào mà một người cha lý
-trí hơn áp dụng; vì nếu mẹ không đồng thuận, người cha
-kiềm chế sẽ luôn bị coi là kẻ bạo chúa.
-
-Nhưng khi thực hiện bổn phận của một người mẹ, một
-người phụ nữ có thể trạng tốt vẫn có thể giữ cho bản
-thân gọn gàng sạch sẽ, và hỗ trợ nuôi dưỡng gia đình
-nếu cần thiết, hoặc thông qua đọc sách và trò chuyện với
-cả hai giới mà không phân biệt để mở mang tâm trí. Vì thiên
-tính đã sắp đặt mọi thứ khôn ngoan đến mức nếu phụ nữ
-nuôi con bằng sữa mẹ, họ sẽ bảo vệ được sức khỏe của
-chính mình, và sẽ có một khoảng thời gian đủ dài giữa mỗi
-lần sinh con để chúng ta hiếm khi thấy một ngôi nhà đầy
-trẻ sơ sinh. Và nếu họ theo đuổi một kế hoạch hành xử
-đúng đắn thay vì lãng phí thời gian chạy theo những sự biến
-đổi thời thượng về ăn diện, việc quản lý gia đình và
-con cái không nhất thiết phải tách họ khỏi văn chương, cũng
-như không ngăn cản họ gắn bó với một ngành khoa học bằng
-một ánh nhìn kiên định giúp tăng cường tâm trí, hoặc thực
-hành một trong những nghệ thuật tinh vi trau dồi gu thẩm mỹ.
-
-Nhưng việc thăm hỏi để khoe đồ diện, đánh bài và khiêu
-vũ, chưa nói đến sự huyên náo vô bổ của những chuyện
-vặt vãnh buổi sáng, kéo phụ nữ rời xa bổn phận, khiến
-họ trở nên vô nghĩa, làm cho họ trở nên dễ chịu (pleasing)
-theo nghĩa hiện nay đối với mọi đàn ông trừ chồng mình. Vì
-một chuỗi khoái lạc không vận dụng tình cảm không thể nói
-là cải thiện trí hiểu, dù bị gọi nhầm là "đi xem thế
-giới"; thế nhưng trái tim bị làm cho lạnh lẽo và ghét bỏ
-bổn phận bởi sự giao lưu vô nghĩa như vậy, thứ trở nên
-cần thiết do thói quen ngay cả khi nó không còn gây thích thú.
-
-Nhưng cho đến khi sự bình đẳng được thiết lập nhiều
-hơn trong xã hội, cho đến khi cấp bậc bị xóa bỏ và phụ
-nữ được tự do, chúng ta sẽ không thấy hạnh phúc gia đình
-tôn nghiêm đó, sự vĩ đại đơn giản mà những tâm hồn ngu
-muội hoặc hư hỏng không thể cảm nhận được; và nhiệm
-vụ quan trọng của giáo dục sẽ không bao giờ được bắt
-đầu đúng mức cho đến khi vẻ ngoài của một người phụ
-nữ không còn được ưu tiên hơn tâm trí cô ấy. Vì thật là
-khôn ngoan nếu mong chờ lúa mì từ cỏ dại, hay vả từ cây
-gai, giống như việc mong đợi một người phụ nữ ngu muội
-khờ dại trở thành một người mẹ tốt.
-
-PHẦN 13.6.
-
-Không cần thiết phải thông báo cho độc giả sáng suốt rằng
-khi tôi bước vào những suy ngẫm kết luận, cuộc thảo luận
-về chủ đề này đơn thuần bao gồm việc mở ra vài nguyên lý
-đơn giản và dọn dẹp đống rác rưởi che lấp chúng. Nhưng
-vì không phải mọi độc giả đều sáng suốt, tôi buộc phải
-thêm một số nhận xét giải thích để đưa chủ đề về với
-lý trí—loại lý trí chậm chạp vốn thụ động chấp nhận
-các ý kiến dựa trên lòng tin và ngoan cố bảo vệ chúng để
-tiết kiệm công sức suy nghĩ.
-
-Các nhà đạo đức học đã nhất trí rằng trừ khi đức
-hạnh được nuôi dưỡng bằng tự do, nó sẽ không bao giờ
-đạt được sức mạnh xứng đáng—và những gì họ nói về
-đàn ông tôi mở rộng ra cho toàn nhân loại, nhấn mạnh rằng
-trong mọi trường hợp đạo đức phải dựa trên các nguyên
-lý bất biến; và sinh thể không thể được gọi là lý trí
-hay đức hạnh nếu vâng lời bất kỳ quyền uy nào ngoài lý trí.
-
-Để làm cho phụ nữ trở thành những thành viên thực sự
-hữu ích của xã hội, tôi lập luận rằng họ nên được dẫn
-dắt bằng cách trau dồi trí hiểu trên quy mô lớn để đạt
-được tình yêu lý trí đối với đất nước dựa trên kiến
-thức, vì rõ ràng chúng ta ít quan tâm đến những gì mình không
-hiểu. Và để kiến thức chung này có tầm quan trọng đúng mức,
-tôi đã cố gắng chỉ ra rằng bổn phận tư gia không bao giờ
-được hoàn thành đúng mức trừ khi trí hiểu mở mang trái tim;
-và đức hạnh công cộng chỉ là tổng hợp của các đức hạnh
-tư gia. Nhưng những phân biệt thiết lập trong xã hội làm xói
-mòn cả hai, bằng cách gọt giũa vàng ròng của đức hạnh cho
-đến khi nó chỉ còn là lớp vỏ kim sa giả tạo che đậy thói
-hư; vì khi sự giàu có khiến một người đàn ông đáng kính
-hơn đức hạnh, người ta sẽ tìm kiếm sự giàu có trước
-đức hạnh; và khi vẻ ngoài của phụ nữ được cưng nựng
-trong lúc cái cười mỉm trẻ con cho thấy sự trống rỗng của
-tâm trí—thì tâm trí sẽ bị bỏ hoang. Tuy nhiên, sự khoái
-lạc thực sự phải bắt nguồn từ tâm trí—vì điều gì
-có thể sánh bằng những cảm xúc tạo ra bởi tình yêu tương
-hỗ được nâng đỡ bởi sự tôn trọng lẫn nhau? Những cái
-vuốt ve lạnh lẽo hay sốt sắng của ham muốn là gì nếu
-không phải là tội lỗi ôm lấy cái chết, so với sự tràn
-trề khiêm tốn của một trái tim thuần khiết và trí tưởng
-tượng cao quý? Đúng vậy, hãy để tôi nói với kẻ lãng mạn
-hão huyền khi hắn khinh thường trí hiểu ở phụ nữ—rằng
-tâm trí mà hắn xem nhẹ chính là thứ đem lại sức sống cho
-tình yêu nồng cháy mà từ đó sự say mê, dù ngắn ngủi, mới
-có thể tuôn trào! Và nếu không có đức hạnh, một sự gắn
-bó giới tính sẽ tàn lụi như một ngọn nến sáp trong đế,
-tạo ra sự ghê tởm khôn cùng. Để chứng minh điều này, tôi
-chỉ cần quan sát rằng những người đàn ông đã dành phần
-lớn đời mình bên phụ nữ, và với họ đã tìm kiếm khoái
-lạc với niềm khao khát mãnh liệt, lại có ý kiến thấp hèn
-nhất về phái nữ. Đức hạnh, chất tinh luyện thật sự của
-niềm vui! Nếu những kẻ ngốc nghếch xua đuổi ngươi khỏi
-trái đất để thỏa mãn mọi ham muốn mà không bị kiềm
-chế—thì một sinh thể có gu thẩm mỹ sẽ leo lên tận trời
-xanh để mời ngươi quay lại mang đến hương vị cho khoái lạc!
-
-Rằng phụ nữ hiện nay do ngu muội mà trở nên khờ dại hoặc
-độc ác là điều tôi nghĩ không thể tranh cãi; và rằng những
-hiệu quả hữu ích nhất góp phần cải thiện nhân loại có
-thể được mong đợi từ một CUỘC CÁCH MẠNG trong cách hành
-xử của phái nữ, dường như ít nhất là một khả năng nảy
-sinh từ quan sát. Vì nếu hôn nhân được gọi là khởi nguồn
-của những tình cảm trìu mến kéo con người ra khỏi bầy thú,
-thì sự giao lưu hư hỏng mà sự giàu có, nhàn rỗi và ngu muội
-tạo ra giữa hai giới lại gây hại cho đạo đức phổ biến
-hơn tất cả các thói hư khác của nhân loại cộng lại. Vì
-dục vọng ngoại tình, những bổn phận thiêng liêng nhất bị
-hy sinh, bởi trước khi kết hôn, đàn ông thông qua sự gần gũi
-bừa bãi với phụ nữ đã học cách coi tình yêu như một sự
-thỏa mãn ích kỷ—học cách tách nó không chỉ khỏi lòng quý
-trọng mà còn khỏi tình cảm đơn thuần dựa trên thói quen,
-thứ pha trộn một chút nhân tính vào đó. Công lý và tình
-bạn cũng bị thách thức, và gu thẩm mỹ thuần khiết bị
-vấy bẩn, điều lẽ ra sẽ dẫn dắt một người đàn ông
-yêu thích sự thể hiện tình cảm mộc mạc hơn là những vẻ
-làm dáng. Nhưng sự đơn giản cao quý của tình cảm dám xuất
-hiện không tô vẽ có ít sức hút đối với kẻ phóng túng,
-dù đó là điểm quyến rũ giúp gắn kết sợi dây hôn nhân,
-bảo đảm cho những cam kết của đam mê nồng cháy sự quan
-tâm cha mẹ cần thiết; vì con cái sẽ không bao giờ được
-giáo dục đúng mức cho đến khi tình bạn tồn tại giữa cha
-mẹ. Đức hạnh bay khỏi ngôi nhà tự chia rẽ—và một đoàn
-quân quỷ dữ sẽ trú ngụ tại đó.
-
-Tình cảm của chồng và vợ không thể thuần khiết khi họ có
-quá ít điểm chung về tâm hồn, và khi rất ít sự tin cậy
-được thiết lập ở nhà, điều tất yếu xảy ra khi những
-theo đuổi của họ quá khác nhau. Sự thân mật mà từ đó sự
-dịu dàng nên tuôn trào sẽ không tồn tại, không thể tồn
-tại giữa những kẻ độc ác.
-
-Khẳng định rằng sự phân biệt giới tính mà đàn ông khăng
-khăng nhấn mạnh là tùy tiện, tôi đã tập trung vào một
-quan sát mà nhiều người đàn ông sáng suốt từng trò chuyện
-với tôi về chủ đề này thừa nhận là có cơ sở; và đơn
-giản là thế này: rằng sự tiết hạnh ít ỏi tìm thấy ở
-nam giới, và hệ quả là sự coi thường đối với sự khiêm
-tốn, có xu hướng làm thấp hèn cả hai giới; và hơn nữa,
-sự khiêm tốn của phụ nữ được đặc trưng như vậy sẽ
-thường chỉ là bức màn xảo quyệt của sự lăng loàn, thay
-vì là hình ảnh phản chiếu tự nhiên của sự thuần khiết
-cho đến khi sự khiêm tốn được tôn trọng phổ biến.
-
-Từ sự bạo hành của đàn ông, tôi tin chắc rằng phần lớn
-những điều ngu muội của phụ nữ nảy sinh; và sự khôn lỏi
-mà tôi thừa nhận hiện là một phần trong nhân cách của họ,
-tôi cũng đã nhiều lần cố gắng chứng minh rằng được tạo
-ra bởi sự áp chế. Liệu những người bất đồng chính kiến
-(dissenters), chẳng hạn, không phải là một tầng lớp bị
-gán mác là khôn lỏi? Và tôi có thể nhấn mạnh sự thật
-này để chứng minh rằng khi bất kỳ quyền lực nào ngoài lý
-trí kiềm hãm tinh thần tự do của con người, sự giả dối
-được thực hiện và các mánh khóe khác nhau của nghệ thuật
-ngụy trang-tự nhiên nảy sinh? Sự chú trọng thái quá vào lễ
-nghi, đạt đến mức tỉ mỉ, và tất cả những sự huyên
-náo trẻ con về những điều vặt vãnh cùng vẻ trịnh trọng
-giả tạo mà bản châm biếm của Butler về một người bất
-đồng chính kiến đưa ra trước trí tưởng tượng, đã nhào
-nặn họ cũng như tâm trí họ trong khuôn mẫu của sự nhỏ
-nhen cứng nhắc. Tôi nói một cách tổng quát, vì tôi biết bao
-nhiêu điều tuyệt vời của nhân tính đã ghi danh trong những
-giáo phái; thế nhưng tôi khẳng định rằng cùng một loại
-định kiến hẹp hòi đối với giáo phái của họ mà phụ nữ
-dành cho gia đình mình, đã ngự trị trong bộ phận bất đồng
-chính kiến của cộng đồng dù ở các khía cạnh khác họ
-rất đáng kính; và cũng chính sự thận trọng rụt rè hoặc
-những nỗ lực bướng bỉnh thường làm mất mặt những nỗ
-lực của cả hai. Sự áp chế theo đó đã định hình nhiều
-đặc điểm nhân cách của họ trùng khớp hoàn toàn với nửa
-bị áp chế của nhân loại; vì chẳng phải điều hiển nhiên
-rằng những người bất đồng chính kiến giống như phụ nữ,
-thích cùng nhau bàn bạc và hỏi ý kiến nhau cho đến khi thông
-qua một chuỗi các mưu mẹo nhỏ nhặt mà đạt được một
-mục đích nhỏ bé? Sự chú trọng tương tự trong việc giữ
-gìn danh tiếng rất nổi bật trong giới bất đồng chính kiến
-và phái nữ, và được tạo ra bởi cùng một nguyên nhân.
-
-Khẳng định những quyền mà phụ nữ cùng với đàn ông nên
-đấu tranh giành lấy, tôi không cố gắng giảm nhẹ lỗi lầm
-của họ; nhưng để chứng minh chúng là hệ quả tự nhiên từ
-giáo dục và vị thế trong xã hội. Nếu vậy, thật hợp lý
-khi cho rằng họ sẽ thay đổi nhân cách và sửa chữa thói hư
-tật xấu khi họ được phép tự do về thể chất, đạo đức
-và dân sự.
-
-Hãy để phụ nữ chia sẻ các quyền lợi, và cô ấy sẽ noi
-theo những đức hạnh của đàn ông; vì cô ấy phải trở nên
-hoàn thiện hơn khi được giải phóng, nếu không sẽ chứng minh
-cho quyền lực xích một sinh thể yếu đuối vào bổn phận
-của mình là đúng đắn. Nếu điều sau cùng đúng, thì thật
-tiện lợi để mở một đường thương mại mới với Nga để
-nhập khẩu roi da; một món quà mà cha nên tặng con rể vào ngày
-cưới, để người chồng có thể giữ toàn bộ gia đình trong
-trật tự bằng phương tiện tương tự; và không vi phạm công
-lý mà trị vì bằng vương trượng này, là chủ duy nhất của
-ngôi nhà mình, bởi vì anh ta là sinh thể duy nhất trong đó có
-lý trí; quyền tối cao thiêng liêng, bất khả xâm phạm trên
-mặt đất được Thượng đế truyền cho đàn ông. Chấp nhận
-vị thế này, phụ nữ không có bất kỳ quyền vốn có nào
-để yêu cầu; và theo quy tắc tương tự, bổn phận của họ
-biến mất vì quyền lợi và bổn phận là không thể tách rời.
-
-Hãy công bằng, hỡi những người đàn ông sáng suốt! Và đừng
-khắt khe với điều phụ nữ làm sai hơn những thói hư của
-con ngựa hay con lừa mà các anh chu cấp thức ăn cho chúng; hãy
-cho cô ấy đặc quyền của sự ngu muội khi các anh từ chối
-quyền lý trí của cô ấy, nếu không các anh sẽ tệ hơn cả
-những quản gia Ai Cập, mong đợi đức hạnh ở nơi mà thiên
-tính không ban cho trí hiểu!
+MỘT VÀI MINH CHỨNG VỀ SỰ NGU MUỘI SINH RA TỪ SỰ VÔ TRI CỦA PHỤ NỮ;
+CÙNG NHỮNG SUY NGẪM KẾT LUẬN VỀ SỰ TIẾN BỘ ĐẠO ĐỨC MÀ MỘT
+CUỘC CÁCH MẠNG TRONG PHONG TỤC NỮ GIỚI NÊN ĐƯỢC KỲ VỌNG SẼ
+MANG LẠI THEO LẼ TỰ NHIÊN
+
+Có nhiều sự ngu muội, ở một mức độ nào đó, là đặc hữu của phụ nữ: những tội lỗi chống lại lý tính, dù là do hành động hay do thiếu sót; nhưng tất cả đều bắt nguồn từ sự vô tri hoặc thành kiến, nên tôi sẽ chỉ vạch ra những điều dường như gây tổn hại đến phẩm giá đạo đức của họ. Và khi phê phán chúng, tôi đặc biệt mong muốn chứng minh rằng, sự yếu đuối về tâm trí và thể xác mà nam giới đã dùng nhiều động cơ khác nhau để duy trì, chính là điều ngăn trở họ thực hiện nghĩa vụ đặc thù của giới mình: vì khi thể xác suy nhược không cho phép họ nuôi con bằng sữa mẹ, và tâm trí yếu ớt khiến họ làm hư hỏng tính khí—liệu người phụ nữ có đang ở trong trạng thái tự nhiên?
+
+PHẦN 13.1
+
+Một minh chứng rõ ràng về sự yếu đuối nảy sinh từ sự vô tri, trước hết cần được lưu tâm và đòi hỏi một lời khiển trách nghiêm khắc.
+
+Tại đô thành này, một số kẻ hút máu ẩn mình đã kiếm sống một cách đê tiện bằng cách lợi dụng sự cả tin của phụ nữ, mạo danh là xem thiên mệnh—theo cụm từ chuyên môn; và nhiều nữ nhân, vốn tự hào về tước vị và gia sản, nhìn xuống những kẻ tầm thường với sự khinh miệt tuyệt đối, lại cho thấy qua sự cả tin này rằng sự phân biệt ấy là tùy tiện, và họ chưa trau dồi tâm trí đủ để vượt lên trên những thành kiến tầm thường. Phụ nữ, bởi lẽ không được dẫn dắt để coi việc hiểu rõ nghĩa vụ của mình là điều duy nhất cần biết, hoặc sống trong hiện tại bằng cách thực hiện nghĩa vụ đó, nên rất nóng lòng muốn nhìn thấu tương lai, để tìm hiểu xem họ có thể mong đợi điều gì khiến cuộc sống trở nên thú vị, và để lấp đầy khoảng trống của sự vô tri. Tôi phải nghiêm túc khiển trách những quý bà theo đuổi những phát minh hão huyền này; vì các quý bà, vốn là nữ chủ của các gia đình, lại không biết hổ thẹn khi ngồi xe ngựa riêng đến tận cửa nhà những kẻ xảo quyệt. Và nếu bất kỳ ai trong số họ đọc tác phẩm này, tôi khẩn thiết mong họ hãy tự trả lời lòng mình những câu hỏi sau, đừng quên rằng họ đang ở trước mặt Thượng đế.
+
+Các bà có tin rằng chỉ có duy nhất một vị Thượng đế, và Ngài là Đấng toàn năng, toàn tri và nhân từ?
+
+Các bà có tin rằng vạn vật đều do Ngài tạo ra, và mọi sinh thể đều lệ thuộc vào Ngài?
+
+Các bà có tin cậy vào sự khôn ngoan của Ngài, điều hiển hiện rõ nét trong các tạo tác và trong chính cơ thể các bà, và có tin chắc rằng Ngài đã sắp đặt mọi sự không nằm trong tầm nhận biết của giác quan theo cùng một sự hài hòa hoàn mỹ để thực thi thiên ý của Ngài?
+
+Các bà có thừa nhận rằng khả năng nhìn thấu tương lai và thấy những điều chưa hiện hữu như thể chúng đang hiện hữu là một đặc tính của Đấng Sáng Tạo? Và nếu Ngài, thông qua ấn tượng trong tâm trí các tạo vật, thấy thích hợp để truyền đạt cho họ một sự kiện nào đó còn ẩn trong bóng tối của thời gian, chưa thành hình, thì bí mật ấy sẽ được tiết lộ cho ai thông qua linh cảm trực tiếp? Quan niệm của bao thế hệ sẽ trả lời câu hỏi này—đó là những bậc cao niên đáng kính, những người nổi danh vì lòng mộ đạo kiên định.
+
+Các lời sấm truyền ngày xưa được ban ra bởi các tư tế tận tụy phụng sự vị Thần mà họ cho là đã truyền cảm hứng cho mình. Sự hào nhoáng của phô trương thế tục bao quanh những kẻ bịp bợm này, và sự kính trọng dành cho chúng từ những chính trị gia xảo quyệt—những kẻ biết tận dụng công cụ hữu ích này để khuất phục những người mạnh mẽ dưới quyền thống trị của những kẻ gian manh—đã phủ một bức màn linh thiêng bí ẩn lên những lời dối trá và sự ghê tởm của chúng. Bị ấn tượng bởi nghi lễ sùng bái trang trọng như vậy, một quý bà Hy Lạp hay La Mã có thể được tha thứ nếu bà hỏi lời sấm truyền khi nóng lòng tò mò về tương lai hoặc tìm hiểu về một sự kiện mơ hồ; và những câu hỏi của bà, dù trái với lý tính, cũng không thể coi là bất kính. Nhưng, liệu những người theo Kitô giáo có thể gạt bỏ cáo buộc đó? Liệu một tín đồ Kitô giáo có thể cho rằng, những kẻ được Đấng Chí Cao ưu ái, những kẻ hết sức được sủng ái lại phải ẩn mình cải trang và dùng những thủ đoạn bất lương nhất để lừa gạt những người phụ nữ khờ dại lấy số tiền mà những kẻ nghèo khổ hằng khao khát trong vô vọng?
+
+Đừng nói rằng những câu hỏi như vậy là một sự xúc phạm đến lẽ thường, vì chính hành vi của các bà, hỡi những người phụ nữ khờ dại! mới là điều đem lại tiếng xấu cho phái nữ! Và những suy ngẫm này nên khiến các bà phải rùng mình trước sự thiếu suy nghĩ và lòng sùng bái phi lý của mình, vì tôi không cho rằng tất cả các bà đều gạt bỏ tôn giáo—dù nó là gì—khi bước vào những nơi trú ngụ bí ẩn đó. Tuy nhiên, như tôi đã mặc định suốt thời gian qua là đang nói chuyện với những người phụ nữ vô tri, vì theo nghĩa nhấn mạnh nhất của từ này, các bà chính là kẻ vô tri; thật là phi lý khi dùng lý tính để tranh luận với các bà về sự ngu muội tột cùng khi khao khát biết điều mà Trí Tuệ Tối Cao đã che giấu.
+
+Có lẽ các bà sẽ không hiểu tôi nếu tôi cố gắng chỉ ra rằng, điều đó hoàn toàn mâu thuẫn với mục đích cao cả của cuộc đời: khiến sinh thể nhân loại trở nên khôn ngoan và đức hạnh; và rằng, nếu điều đó được Thượng đế chuẩn thuận, nó sẽ làm xáo trộn trật tự thiết lập trong tạo hóa; còn nếu không được Thượng đế chuẩn thuận, các bà mong đợi nghe thấy sự thật sao? Liệu những sự kiện có thể được tiên đoán—những sự kiện chưa hình thành để trở thành đối tượng kiểm chứng của phàm nhân—liệu chúng có thể được dự báo bởi một kẻ thế tục đê tiện, kẻ nuông chiều dục vọng của mình bằng cách săn đuổi những kẻ khờ dại?
+
+Tuy nhiên, có lẽ các bà hết lòng tin vào ác quỷ, và tưởng tượng—để né tránh câu hỏi—rằng hắn có thể hỗ trợ những kẻ tôn thờ mình? Nhưng nếu thực sự tôn trọng quyền năng của một sinh thể như vậy, một kẻ thù của thiện lương và Thượng đế, liệu các bà có thể đến nhà thờ sau khi đã chịu ơn hắn. Từ những ảo tưởng này đến những sự lừa dối thời thượng hơn, được thực hiện bởi toàn bộ nhóm những kẻ thôi miên (magnetisers), sự chuyển tiếp là hết sức tự nhiên. Đối với họ, cũng thích hợp để hỏi phụ nữ một vài câu.
+
+Các bà có biết gì về cấu tạo của cơ thể con người không? Nếu không, điều đúng đắn là các bà nên được cho biết điều mà mọi đứa trẻ đều cần biết: rằng khi sự vận hành tuyệt diệu của cơ thể bị xáo trộn bởi sự vô độ hoặc lười nhác—tôi không nói đến những rối loạn dữ dội mà là những bệnh mãn tính—thì nó phải được đưa trở lại trạng thái khỏe mạnh một cách từ tốn; và nếu các chức năng sinh tồn chưa bị tổn hại nghiêm trọng, thì chế độ ăn uống (một từ khác của sự tiết độ), không khí, vận động, và một vài loại thuốc được kê đơn bởi những người đã nghiên cứu cơ thể người là những phương tiện nhân sinh duy nhất từng được phát hiện, có khả năng khôi phục phước lành vô giá là sức khỏe mà có thể chịu được sự kiểm chứng.
+
+Vậy các bà có tin rằng những kẻ thôi miên này, bằng những trò ma thuật hocus pocus, giả vờ tạo ra phép màu, là được Thượng đế ủy thác, hay được hỗ trợ bởi kẻ giải quyết mọi khó khăn loại này—tức ác quỷ?
+
+Khi họ xua đuổi những rối loạn mà như lời đồn là đã làm thất bại quyền năng của y học, liệu họ có hành động phù hợp với ánh sáng của lý tính? Hay họ thực hiện những ca chữa trị kỳ diệu này bằng sự trợ giúp siêu nhiên?
+
+Một bậc thầy về thuật thôi miên có thể trả lời rằng đó là nhờ giao tiếp với thế giới tâm linh. Phải thừa nhận đó là một đặc quyền cao quý. Một số người thời cổ đại nhắc đến các ác quỷ thân cận đã bảo vệ họ khỏi nguy hiểm bằng cách báo trước (chúng ta không thể đoán theo cách nào) khi có nguy hiểm cận kề; hoặc chỉ ra những gì họ nên thực hiện. Tuy nhiên, những người tuyên bố có đặc quyền này—một điều trái với quy luật tự nhiên—đã khẳng định rằng đó là phần thưởng hoặc hệ quả của sự tiết độ và lòng mộ đạo siêu phàm. Nhưng những kẻ tạo ra phép màu hiện nay không hề vượt trội hơn đồng loại bằng sự tiết độ hay thánh thiện nào. Họ chữa bệnh không phải vì tình yêu với Thượng đế, mà vì tiền bạc. Đây chính là các tư tế của thuật lang băm, dù sự thật là họ không có phương tiện thuận lợi như bán lễ cầu hồn cho những linh hồn nơi luyện ngục, cũng không có nhà thờ để trưng bày nạng gỗ và các mô hình chi thể được chữa lành nhờ một cú chạm hay một lời nói.
+
+Tôi không thông thạo các thuật ngữ chuyên môn, cũng chẳng được nhập môn vào những bí mật sâu kín, nên tôi có thể nói điều gì đó chưa chính xác; nhưng rõ ràng là, những kẻ không tuân theo quy luật của lý tính và không kiếm sống một cách lương thiện từng bước một, thật là may mắn khi quen biết những linh hồn dễ dãi như vậy. Thật vậy, chúng ta không thể tin rằng họ có sự mưu lược hay lòng tốt lớn lao, nếu không họ đã chọn những công cụ cao quý hơn khi muốn tỏ ra là những người bạn nhân từ của loài người.
+
+Tuy nhiên, việc giả vờ có quyền năng như vậy gần như là một lời báng bổ.
+
+>Từ toàn bộ xu hướng của sự an bài từ Thiên ý, lý tính tỉnh táo thấy rõ rằng những thói hư nhất định sẽ tạo ra những hệ quả nhất định: và liệu có ai xúc phạm trí tuệ của Thượng đế một cách trắng trợn đến mức cho rằng, một phép màu sẽ được phép làm xáo trộn các quy luật chung của Ngài, để khôi phục sức khỏe cho kẻ vô độ và đê tiện, chỉ nhằm mục đích cho phép họ tiếp tục con đường đó mà không bị trừng phạt? 'Hãy lành bệnh, và đừng phạm tội nữa', Chúa Giê-su đã phán. Và liệu những phép màu lớn hơn sẽ được thực hiện bởi những kẻ không theo bước chân Ngài, người chữa lành thể xác để chạm tới tâm hồn?
+
+Việc nhắc đến danh xưng Đấng Kitô sau những kẻ bịp bợm hèn hạ như vậy có thể làm một số độc giả của tôi không hài lòng—tôi tôn trọng sự nhiệt thành của họ; nhưng xin đừng quên rằng, những kẻ theo đuổi những ảo tưởng này mang danh Ngài và tự xưng là môn đồ của Đấng đã phán rằng: nhìn vào công việc của họ, chúng ta sẽ biết ai là con cái Thượng đế hay là tôi tớ của tội lỗi. Tôi thừa nhận rằng chạm vào thân thể một vị thánh hoặc được thôi miên thì dễ hơn là kiềm chế dục vọng hay điều khiển đam mê; nhưng sức khỏe thể xác hay tâm hồn chỉ có thể khôi phục bằng những phương tiện này, nếu không chúng ta biến Thẩm phán Tối cao thành kẻ thiên vị và thù hằn.
+
+Ngài là con người sao mà phải thay đổi, hoặc trừng phạt vì oán hận? Lý tính nói rằng Ngài—Người Cha chung, gây thương tổn chỉ để chữa lành, và bởi các sai sót của ta tạo ra những hệ quả nhất định, ta bị buộc phải thấy rõ bản chất của thói hư; để từ đó, thông qua trải nghiệm, ta học được cách phân biệt thiện ác, để ghét điều này và yêu điều kia, tương xứng với sự khôn ngoan mà ta đạt được. Chất độc chứa đựng thuốc giải; và chúng ta hoặc là cải thiện những thói quen xấu, ngừng phạm tội chống lại chính cơ thể mình—dùng ngôn ngữ quyết liệt của kinh thánh—hoặc một cái chết sớm, hình phạt của tội lỗi, sẽ cắt đứt sợi dây sinh mệnh.
+
+Tại đây, một điểm dừng đáng sợ được đặt ra cho những truy vấn của chúng ta. Nhưng tại sao tôi phải che giấu cảm xúc của mình? Cân nhắc các thuộc tính của Thượng đế, tôi tin rằng bất kỳ hình phạt nào theo sau cũng sẽ có xu hướng—như nỗi đau của bệnh tật—phơi bày sự độc hại của thói hư, nhằm mục đích cải tạo. Hình phạt cưỡng chế dường như quá trái ngược với bản chất của Thượng đế, điều có thể khám phá trong mọi tác phẩm của Ngài và trong lý tính của chính chúng ta, đến mức tôi thà tin rằng Đấng Tối Cao không quan tâm đến hành vi của con người, hơn là tin Ngài trừng phạt mà không có mục đích nhân từ là cải tạo.
+
+Chỉ riêng việc cho rằng một Sinh thể toàn tri và toàn năng, tốt đẹp như chính sự vĩ đại của Ngài, lại tạo ra một sinh thể mà đã tiên liệu rằng sau năm mươi hoặc sáu mươi năm tồn tại sôi động, nó sẽ bị đẩy vào nỗi khốn khổ vô tận—chính là lời báng bổ. Con sâu kia sẽ ăn gì nếu không bao giờ chết? Ăn sự khờ dại, ăn sự vô tri, các bà nói vậy sao—tôi sẽ đỏ mặt phẫn nộ khi đưa ra kết luận tự nhiên đó, nếu tôi có thể chèn nó vào và mong muốn rút lui khỏi đôi cánh của Thượng đế tôi! Với một giả định như thế, tôi xin nói với sự tôn kính, Ngài sẽ là ngọn lửa thiêu rụi. Chúng ta sẽ ước ao, dù vô ích, được chạy trốn khỏi hiện diện của Ngài khi nỗi sợ hãi nuốt chửng tình yêu, và bóng tối bao phủ mọi lời chỉ dẫn của Ngài.
+
+Tôi biết nhiều người sùng đạo tự hào về việc phục tùng Ý muốn của Thượng đế một cách mù quáng, như đối với một vương trượng hay chiếc roi tùy tiện, theo cùng nguyên lý mà người Ấn Độ thờ phụng ác quỷ. Nói cách khác, giống như mọi người trong những lo toan thường nhật của cuộc sống, họ tôn kính quyền lực và khúm núm dưới bàn chân có thể nghiền nát họ. Ngược lại, tôn giáo lý tính là sự phục tùng ý chí của một sinh thể khôn ngoan đến mức hoàn hảo, mà tất cả những gì Ngài muốn phải được dẫn dắt bởi động cơ đúng đắn—phải hợp lẽ.
+
+Và nếu chúng ta tôn kính Thượng đế như vậy, liệu chúng ta có thể tin vào những lời ám chỉ bí ẩn xúc phạm luật lệ của Ngài? Liệu chúng ta có thể tin, dù nó hiển hiện trước mặt, rằng Ngài sẽ thực hiện một phép màu để hợp thức hóa sự hỗn loạn bằng cách chuẩn thuận một sai lầm? Tuy nhiên, chúng ta hoặc phải chấp nhận những kết luận bất kính này, hoặc coi thường mọi lời hứa khôi phục sức khỏe cho cơ thể bệnh tật bằng phương tiện siêu nhiên, hoặc tiên đoán những biến cố mà chỉ Thượng đế mới có thể thấy trước.
+
+PHẦN 13.2
+
+Một minh chứng khác về sự yếu đuối trong tính cách của nữ giới, thường do một nền giáo dục hạn hẹp gây ra, là một sự vặn vẹo lãng mạn của tâm trí, điều đã được gọi một cách rất chính xác là tính CẢM THƯƠNG.
+
+Phụ nữ, bị sự vô tri khiến họ lệ thuộc vào cảm giác và chỉ được dạy tìm kiếm hạnh phúc trong tình yêu, thường tinh lọc những cảm xúc nhục dục và chấp nhận những quan niệm siêu hình về niềm đam mê đó, điều dẫn dắt họ bỏ bê một cách đáng hổ thẹn các nghĩa vụ của cuộc đời, và thường xuyên trong chính những sự tinh luyện cao siêu này, họ sa ngã vào thói hư thật sự.
+
+Đây là những người phụ nữ bị mê hoặc bởi những mộng tưởng của những tiểu thuyết gia ngu ngốc, những kẻ biết rất ít về bản tính nhân loại, xào nấu lại những câu chuyện cũ rích và mô tả những khung cảnh phù phiếm, tất cả được kể bằng một thứ ngôn ngữ cảm thương hỗn tạp, điều này vừa làm hư hỏng thị hiếu, vừa kéo trái tim rời xa những nghĩa vụ hàng ngày. Tôi không nhắc đến trí tuệ, vì chưa bao giờ được rèn luyện, năng lượng ngủ quên của nó vẫn nằm yên bất động, giống như những hạt lửa tiềm ẩn được cho là hiện diện khắp mọi vật chất.
+
+Thực tế, phụ nữ bị tước bỏ mọi đặc quyền chính trị, và khi đã kết hôn, ngoại trừ trong các vụ án hình sự, họ không có tư cách pháp nhân dân sự; do đó sự chú ý của họ tự nhiên bị kéo từ lợi ích của toàn thể cộng đồng sang những phần nhỏ nhặt, mặc dù nghĩa vụ riêng tư của bất kỳ thành viên nào trong xã hội cũng sẽ được thực hiện một cách rất thiếu sót nếu không gắn liền với lợi ích chung. Công việc trọng đại của đời sống phụ nữ là làm hài lòng người khác, và khi bị ngăn cản tham gia vào những sự vụ quan trọng hơn bởi sự áp bức chính trị và dân sự, cảm xúc trở thành sự kiện, và sự trầm ngâm đào sâu những điều mà lẽ ra nó nên xóa bỏ, và sẽ xóa bỏ nếu trí tuệ được phép mở rộng tầm nhìn.
+
+Nhưng khi bị giới hạn trong những công việc vặt vãnh, họ tự nhiên thấm nhuần những quan niệm mà loại sách duy nhất có khả năng thu hút một tâm hồn ngây thơ phù phiếm truyền tải. Không thể nắm bắt bất cứ điều gì lớn lao, liệu có đáng ngạc nhiên không khi họ thấy việc đọc lịch sử là một nhiệm vụ rất khô khan, và các tiểu luận dành cho trí tuệ là tẻ nhạt không chịu nổi và gần như không thể hiểu được? Vì thế, họ tất yếu phải lệ thuộc vào tiểu thuyết để giải trí. Tuy nhiên, khi tôi lên tiếng chống lại tiểu thuyết, ý tôi là khi đối chiếu với những tác phẩm rèn luyện trí tuệ và điều tiết trí tưởng tượng. Bởi vì tôi cho rằng bất kỳ loại sách nào cũng tốt hơn là để một khoảng trống vẫn là khoảng trống, vì tâm trí phải nhận được một mức độ mở rộng và đạt được chút sức mạnh thông qua sự nỗ lực nhẹ nhàng của năng lực tư duy; bên cạnh đó, ngay cả những tác phẩm chỉ hướng tới trí tưởng tượng cũng nâng người đọc lên một chút trên sự thỏa mãn thô thiển của dục vọng mà tâm trí chưa đem lại được chút tinh tế nào.
+
+Quan sát này là kết quả của kinh nghiệm; vì tôi đã biết vài người phụ nữ đáng chú ý, và đặc biệt là một người—một người phụ nữ rất tốt theo cách mà một tâm hồn hạn hẹp cho phép bà ta tốt—người đã chăm sóc để các con gái (ba người) không bao giờ được đọc tiểu thuyết. Vì bà là người có gia sản và thời thượng, họ có nhiều thầy dạy kèm và một loại gia sư thấp kém để trông chừng bước chân. Từ những thầy dạy, họ học cách gọi bàn, ghế, v.v. bằng tiếng Pháp và tiếng Ý; nhưng vì vài cuốn sách được đưa cho họ vượt quá khả năng hoặc là sách sùng đạo, nên họ không đạt được ý niệm hay cảm xúc nào, và dành thời gian—khi không bị buộc phải lặp lại các TỪ ngữ—để ăn diện, cãi nhau với nhau, hoặc nói chuyện lén lút với những cô hầu, cho đến khi họ được đưa vào xã hội khi đã đến tuổi kết hôn.
+
+Mẹ họ, một góa phụ, trong thời gian đó bận rộn duy trì các mối quan hệ, như bà gọi là sự quen biết rộng rãi để các con gái không thiếu một lời giới thiệu phù hợp vào thế giới thượng lưu. Và những quý cô trẻ này, với tâm trí tầm thường theo mọi nghĩa của từ này và tính khí bị hư hỏng, bước vào đời với sự kiêu ngạo về tầm quan trọng của bản thân và nhìn xuống với sự khinh miệt những ai không thể cạnh tranh với họ về trang phục và phô trương.
+
+Về tình yêu, tự nhiên hoặc những vú em đã chăm sóc dạy cho họ ý nghĩa vật lý của từ đó; và vì họ có ít chủ đề để trò chuyện, càng ít sự tinh tế trong cảm xúc, họ bày tỏ những ham muốn thô thiển không bằng những cụm từ tinh tế khi nói chuyện thoải mái về hôn nhân.
+
+Liệu những cô gái này có bị tổn hại nếu đọc tiểu thuyết? Tôi gần như quên mất một nét trong tính cách của một người trong số họ; cô ta giả vờ đơn giản đến mức khờ dại, và với nụ cười mỉm sẽ thốt ra những nhận xét và câu hỏi thiếu khiêm cung nhất, mà ý nghĩa đầy đủ của chúng cô đã học được trong khi bị tách biệt với thế giới, và sợ nói trước mặt mẹ mình, người cai trị một cách hà khắc; tất cả họ đều được giáo dục, như bà tự hào, theo một cách mẫu mực nhất; và đọc các chương kinh thánh cùng những bài thánh ca trước bữa sáng, không bao giờ chạm vào một cuốn tiểu thuyết ngớ ngẩn.
+
+Đây chỉ là một ví dụ; nhưng tôi nhớ nhiều phụ nữ khác, không được dẫn dắt từng bước đến những nghiên cứu phù hợp và không được phép tự lựa chọn cho mình, thực sự đã trở thành những đứa trẻ quá tuổi; hoặc đạt được, nhờ giao thiệp với thế giới, một chút thứ gọi là lẽ thường; tức là một cách nhìn rõ ràng về các hiện tượng thông thường khi chúng đứng độc lập: nhưng điều xứng đáng với tên gọi trí tuệ, khả năng đạt được các ý niệm tổng quát hay trừu tượng, hoặc thậm chí là những ý niệm trung gian, thì hoàn toàn không có. Tâm trí họ tĩnh lặng, và khi không bị đánh thức bởi những đối tượng cảm tính và công việc thuộc loại đó, họ sẽ uể oải, khóc lóc hoặc đi ngủ.
+
+Vì vậy, khi tôi khuyên phái nữ của mình không nên đọc những tác phẩm hời hợt như vậy, là để thúc giục họ đọc thứ gì đó cao quý hơn; vì tôi đồng ý quan điểm với một người đàn ông sáng suốt, người có một con gái và một cháu gái dưới sự chăm sóc của mình, đã thực hiện kế hoạch rất khác nhau cho mỗi người.
+
+Người cháu gái, vốn có khả năng đáng kể, trước khi được giao cho ông bảo trợ, đã được nuông chiều đọc sách tùy hứng. Ông cố gắng dẫn dắt cô, và đã dẫn dắt thành công, đến với lịch sử và các tiểu luận đạo đức; nhưng con gái ông, người bị một người mẹ yêu thương quá mức nuông chiều và do đó ác cảm với mọi thứ giống như sự rèn luyện, ông cho phép đọc tiểu thuyết; và thường lý giải hành vi của mình rằng nếu cô bé bao giờ đạt được niềm yêu thích đọc chúng, ông sẽ có một nền tảng để tác động vào; và những quan niệm sai lầm thì vẫn tốt hơn là không có quan niệm nào.
+
+Thực tế, tâm trí nữ giới bị bỏ bê hoàn toàn đến mức tri thức chỉ có thể đạt được từ nguồn nước đục này, cho đến khi từ việc đọc tiểu thuyết, một số phụ nữ tài năng vượt trội học cách khinh miệt chúng.
+
+Tôi tin rằng phương pháp tốt nhất có thể áp dụng để sửa thói ham mê tiểu thuyết là chế nhạo chúng; không phải một cách bừa bãi, vì khi đó sẽ ít hiệu quả; nhưng nếu một người sáng suốt, có thiên hướng hài hước, đọc vài cuốn cho một cô gái trẻ và chỉ ra, bằng cả giọng điệu và những so sánh khéo léo với các sự kiện cảm động và nhân vật anh hùng trong lịch sử, rằng chúng đã biếm họa bản tính nhân loại một cách ngớ ngẩn và nực cười như thế nào, thì những quan điểm đúng đắn có thể được thay thế cho những cảm xúc lãng mạn.
+
+Tuy nhiên, ở một phương diện, đa số cả hai giới đều giống nhau và cùng cho thấy sự thiếu hụt về thị hiếu cũng như khiêm cung. Phụ nữ vô tri, bị buộc phải khiết tịnh để giữ gìn danh tiếng, để trí tưởng tượng của mình đắm chìm trong những cảnh tượng phi tự nhiên và phù phiếm được phác họa bởi các tiểu thuyết gia đương thời, coi sự uy nghiêm tỉnh táo và vẻ đoan trang mẫu mực của lịch sử* là nhạt nhẽo, trong khi nam giới mang chính thị hiếu bị hư hỏng đó vào cuộc sống, và tìm đến sự phóng đãng để giải trí, rời xa những nét quyến rũ thuần khiết của đức hạnh và sự tôn nghiêm trầm mặc của lý tính.
+
+(*Chú thích. Tôi hiện không ám chỉ đến sự ưu việt về tâm trí dẫn đến việc tạo ra vẻ đẹp lý tưởng, khi cuộc đời được nhìn bằng con mắt thấu suốt hiện ra như một vở bi hài kịch mà trong đó ít điều có thể làm thỏa mãn trái tim nếu thiếu sự trợ giúp của trí tưởng tượng.)
+
+Hơn nữa, việc đọc tiểu thuyết khiến phụ nữ, và đặc biệt là các quý bà thời thượng, rất thích sử dụng những cách diễn đạt mạnh mẽ và từ cực cấp trong giao tiếp; và mặc dù cuộc sống nhân tạo phù phiếm mà họ theo đuổi ngăn cản họ nuôi dưỡng bất kỳ đam mê chính đáng mãnh liệt nào, ngôn ngữ của đam mê với giọng điệu giả tạo vẫn tuôn ra không ngừng từ những chiếc lưỡi dẻo kẹo của họ, và mỗi điều vặt vãnh đều tạo ra những tia lửa phốt pho vốn chỉ bắt chước ngọn lửa đam mê trong bóng tối.
+SECTION 13.3
+
+Sự ngu muội và sự xảo quyệt sai lầm mà tự nhiên mài giũa trong những đầu óc yếu ớt, như một nguyên lý của sự tự bảo toàn, khiến phụ nữ rất say mê y phục, và tạo ra mọi sự phù phiếm mà một niềm say mê như vậy tự nhiên được kỳ vọng sẽ nảy sinh, cho đến khi loại trừ sự nỗ lực vươn lên và sự cao thượng.
+
+Tôi đồng ý với Rousseau rằng phần vật chất của nghệ thuật làm hài lòng bao gồm những đồ trang sức, và chính vì lý do đó tôi sẽ bảo vệ các thiếu nữ khỏi niềm say mê y phục dễ lây lan vốn quá phổ biến ở những phụ nữ yếu đuối, để họ không dừng lại ở phần vật chất. Tuy nhiên, thật yếu đuối là những người phụ nữ tưởng rằng mình có thể làm hài lòng trong thời gian dài mà không có sự trợ giúp của tâm trí; hay nói cách khác, mà không có nghệ thuật đạo đức của việc làm hài lòng. Nhưng nghệ thuật đạo đức, nếu việc sử dụng từ "nghệ thuật" không phải là một sự xúc phạm khi ám chỉ đến vẻ duyên dáng vốn là kết quả của đức hạnh, chứ không phải là động cơ của hành động, thì không bao giờ được tìm thấy ở sự ngu muội; tính tinh nghịch của sự thuần khiết, vốn rất làm hài lòng những kẻ phóng đãng tinh tế của cả hai giới, về bản chất hoàn toàn khác với vẻ duyên dáng thượng đẳng này.
+
+Một khuynh hướng mạnh mẽ đối với những đồ trang sức bên ngoài luôn xuất hiện trong các trạng thái dã man, chỉ có nam giới chứ không phải nữ giới tự tô điểm cho mình; vì nơi nào phụ nữ được phép đứng ngang hàng với nam giới đến mức đó, xã hội đã tiến thêm ít nhất một bước trong văn minh.
+
+Do đó, sự quan tâm đến y phục, điều vốn bị coi là một thiên hướng tính dục, tôi cho rằng điều đó là tự nhiên đối với nhân loại. Nhưng tôi cần diễn đạt một cách chính xác hơn. Khi tâm trí không được mở mang đầy đủ để tìm thấy niềm vui trong sự suy ngẫm, cơ thể sẽ được tô điểm với sự chăm sóc cần mẫn; và tham vọng sẽ xuất hiện trong việc xăm mình hoặc vẽ lên đó.
+
+Khuynh hướng đầu tiên này được đẩy đi xa đến mức ngay cả cái ách địa ngục của nô lệ cũng không thể dập tắt khát vọng ngưỡng mộ hoang dã mà những anh hùng da đen thừa hưởng từ cả cha và mẹ họ, vì tất cả những khoản tiết kiệm khó nhọc của một nô lệ thường được chi tiêu cho một chút đồ trang sức rẻ tiền. Và tôi hiếm khi biết một người hầu nam hay nữ tốt nào mà không đặc biệt say mê y phục. Quần áo của họ là sự giàu sang của họ; và tôi lập luận bằng phép tương tự rằng niềm say mê y phục, quá mức ở nữ giới, nảy sinh từ cùng một nguyên nhân—sự thiếu tu dưỡng tâm trí. Khi nam giới gặp nhau, họ đàm luận về kinh doanh, chính trị hoặc văn chương; nhưng, như Swift nói, "phụ nữ áp tay vào những dải ruy băng và nếp gấp áo của nhau một cách tự nhiên biết bao." Và điều đó thật tự nhiên—vì họ không có bất kỳ công việc nào khiến họ quan tâm, không có sở thích văn chương, và họ thấy chính trị khô khan, bởi vì họ chưa đạt được tình yêu dành cho nhân loại bằng cách hướng tư duy về những mục tiêu cao cả làm tôn vinh chủng tộc người và thúc đẩy hạnh phúc chung.
+
+Ngoài ra, có nhiều con đường dẫn đến quyền lực và danh tiếng mà nam giới theo đuổi do ngẫu nhiên hay lựa chọn, và dù họ xô đẩy nhau, vì những người cùng nghề nghiệp hiếm khi là bạn, tuy nhiên vẫn có một số lượng lớn đồng loại mà họ không bao giờ xung đột. Nhưng phụ nữ lại ở trong tình thế rất khác biệt đối với nhau—vì tất cả họ đều là những đối thủ.
+
+Trước khi kết hôn, nhiệm vụ của họ là làm hài lòng nam giới; và sau đó, với một vài ngoại lệ, họ vẫn theo đuổi mùi hương đó, với tất cả sự kiên trì ngoan cố của bản năng. Ngay cả những người phụ nữ đức hạnh cũng không bao giờ quên giới tính của mình khi ở trong xã hội, vì họ luôn cố gắng làm cho bản thân trở nên DỄ CHẤP NHẬN. Một mỹ nữ và một nam nhân tài hoa dường như đều lo lắng như nhau trong việc thu hút sự chú ý của mọi người về phía mình; và sự thù địch giữa những kẻ tài hoa cùng thời là điều ai cũng biết.
+
+Vậy thì có đáng ngạc nhiên không khi tham vọng duy nhất của phụ nữ tập trung vào vẻ đẹp, và lợi ích tiếp thêm sức mạnh cho sự phù phiếm, khiến những cuộc đối đầu vĩnh viễn nảy sinh? Tất cả họ đều đang chạy cùng một cuộc đua, và sẽ vượt lên trên đức hạnh của những kẻ phàm trần nếu họ không nhìn nhau bằng con mắt nghi ngờ và thậm chí là ghen tị.
+
+Sự say mê y phục quá mức, niềm đam mê khoái lạc và quyền lực, là những đam mê của kẻ dã man; những đam mê chiếm ngự những sinh thể chưa văn minh, những kẻ chưa mở rộng sự thống trị của tâm trí, hoặc thậm chí chưa học được cách tư duy với năng lượng cần thiết để liên kết chuỗi tư duy trừu tượng tạo ra các nguyên lý. Và việc phụ nữ, do giáo dục và tình trạng hiện tại của đời sống văn minh, cũng ở trong điều kiện tương tự, tôi nghĩ là không thể bàn cãi. Vì vậy, cười nhạo họ, hoặc châm biếm những sự khờ dại của một sinh thể không bao giờ được phép hành động tự do theo ánh sáng lý tính của chính mình, vừa nực cười vừa độc ác; vì việc những kẻ được dạy vâng lời quyền uy một cách mù quáng sẽ tìm cách xảo quyệt để lẩn tránh nó, là điều tự nhiên nhất và chắc chắn nhất.
+
+Tuy nhiên, hãy chứng minh rằng họ phải vâng lời nam giới một cách tuyệt đối, và tôi sẽ ngay lập tức đồng ý rằng nhiệm vụ của phụ nữ là nuôi dưỡng niềm say mê y phục để làm hài lòng, và một khuynh hướng xảo quyệt để tự bảo toàn.
+
+Tuy nhiên, những đức hạnh được hỗ trợ bởi sự ngu muội sẽ luôn lay động—ngôi nhà xây trên cát không thể chịu được cơn bão. Hầu như không cần phải đưa ra suy luận này. Nếu phụ nữ được làm cho đức hạnh bằng quyền uy, điều vốn là một sự mâu thuẫn về thuật ngữ, hãy nhốt họ trong các hậu cung và canh chừng với con mắt ghen tuông. Đừng sợ rằng xiềng xích sắt sẽ thấm vào linh hồn họ—vì những linh hồn có thể chịu đựng sự đối xử như vậy được làm từ những chất liệu dễ khuất phục, vừa đủ sức sống để duy trì cơ thể.
+
+"Chất quá mềm chẳng thể lưu dấu vết lâu bền,
+Và phân biệt rõ nhất bởi sắc đen, nâu hay trắng ngần."
+
+Những vết thương tàn khốc nhất tất nhiên sẽ sớm lành, và họ vẫn có thể làm đầy thế giới này bằng con cái, và ăn mặc để làm hài lòng nam giới—tất cả những mục đích mà một số tác giả nổi tiếng cho rằng họ được tạo ra để thực hiện.
+
+SECTION 13.4
+
+Phụ nữ được cho là sở hữu nhiều cảm tính hơn, và thậm chí cả lòng nhân đạo hơn nam giới, và những sự gắn bó mạnh mẽ cũng như những cảm xúc thương cảm tức thời của họ được đưa ra làm bằng chứng; nhưng tình cảm bám víu của sự ngu muội hiếm khi có điều gì cao quý trong đó, và phần lớn có thể quy về sự ích kỷ, cũng giống như tình cảm của trẻ con và loài thú. Tôi đã biết nhiều phụ nữ yếu đuối mà cảm tính của họ hoàn toàn bị chiếm ngự bởi chồng mình; và đối với lòng nhân đạo của họ, nó thực sự rất mờ nhạt, hay đúng hơn đó chỉ là một cảm xúc thương cảm thoáng qua, "Lòng nhân đạo không nằm ở đôi tai nhạy cảm quá mức," một diễn giả lỗi lạc nói. "Nó thuộc về tâm trí cũng như các dây thần kinh."
+
+Nhưng loại tình cảm độc tôn này, dù làm hạ thấp cá nhân, không nên được đưa ra như một bằng chứng về sự kém cỏi của giới tính này, vì đó là hậu quả tự nhiên của những góc nhìn hạn hẹp: vì ngay cả những người phụ nữ có giác quan thượng đẳng, khi bị hướng sự chú ý vào những công việc nhỏ nhặt và những kế hoạch riêng tư, hiếm khi đạt đến sự anh hùng, trừ khi được thúc đẩy bởi tình yêu; và tình yêu như một niềm đam mê anh hùng, giống như thiên tài, chỉ xuất hiện một lần trong một thời đại. Vì vậy, tôi đồng ý với nhà đạo đức học người khẳng định rằng "phụ nữ hiếm khi có sự hào hiệp như nam giới"; và rằng những tình cảm hạn hẹp của họ, nơi công lý và lòng nhân đạo thường bị hy sinh, khiến giới tính này có vẻ kém cỏi hơn, đặc biệt là khi họ thường được truyền cảm hứng bởi nam giới; nhưng tôi cho rằng trái tim sẽ mở rộng khi sự hiểu biết trở nên mạnh mẽ hơn, nếu phụ nữ không bị kìm hãm ngay từ trong nôi.
+
+Tôi biết rằng một chút cảm tính và sự yếu đuối tột cùng sẽ tạo ra một sự gắn bó tính dục mạnh mẽ, và lý tính phải là chất kết dính tình bạn; do đó tôi thừa nhận rằng tình bạn được tìm thấy ở thế giới nam giới nhiều hơn thế giới nữ giới, và nam giới có ý thức cao hơn về công lý. Những tình cảm độc tôn của phụ nữ thực sự dường như giống với tình yêu bất công nhất của Cato dành cho đất nước mình. Ông muốn nghiền nát Carthage, không phải để cứu Rome, mà để thúc đẩy vinh quang hão huyền của nó; và nhìn chung, chính những nguyên lý tương tự khiến lòng nhân đạo bị hy sinh, vì những bổn phận chân chính luôn hỗ trợ lẫn nhau.
+
+Ngoài ra, làm sao phụ nữ có thể công bằng hay hào hiệp, khi họ là nô lệ của sự bất công.
+
+SECTION 13.5.
+
+Vì việc nuôi dạy trẻ em, tức là đặt nền móng cho sức khỏe tinh thần và thể chất vững vàng cho thế hệ mai sau, đã được nhấn mạnh một cách chính đáng là thiên chức riêng biệt của phụ nữ, nên sự ngu muội làm mất khả năng của họ phải trái với trật tự của vạn vật. Và tôi cho rằng tâm trí họ có thể tiếp thu nhiều hơn thế, và nên làm như vậy, nếu không họ sẽ không bao giờ trở thành những người mẹ sáng suốt. Nhiều nam giới chú trọng vào việc huấn luyện ngựa nhưng lại bỏ qua việc quản lý chuồng ngựa, những kẻ mà—thật thiếu giác quan và tình cảm đến lạ lùng!—nghĩ rằng mình bị hạ thấp khi dành bất kỳ sự quan tâm nào cho nhà trẻ; vậy mà, biết bao đứa trẻ đã bị giết chết hoàn toàn bởi sự ngu muội của phụ nữ! Nhưng khi chúng thoát nạn, và không bị hủy hoại bởi sự thờ ơ bất thường hay niềm yêu thương mù quáng, thì thật ít đứa trẻ được nuôi dạy đúng đắn đối với tâm trí non nớt! Đến mức để khuất phục tinh thần của một đứa trẻ vốn bị để cho trở nên hư hỏng ở nhà, đứa trẻ đó được gửi đến trường; và những phương pháp áp dụng tại đó, vốn phải thực hiện để giữ trật tự cho nhiều đứa trẻ, lại gieo rắc hạt giống của hầu hết mọi thói xấu vào vùng đất vừa bị cưỡng ép xới tung.
+
+Đôi khi tôi so sánh cuộc đấu tranh của những đứa trẻ tội nghiệp này—những đứa trẻ lẽ ra không bao giờ phải cảm thấy bị kiềm chế, và sẽ không như vậy nếu chúng luôn được dẫn dắt bằng một bàn tay ôn hòa—với những cú nhảy tuyệt vọng của một con ngựa cái non đầy khí thế mà tôi từng thấy khi nó bị khuất phục trên bãi cát; chân nó lún sâu hơn và sâu hơn vào cát mỗi khi nó cố gắng hất ngã người cưỡi, cho đến khi cuối cùng nó lặng lẽ phục tùng.
+
+Tôi luôn thấy ngựa, loài vật mà tôi gắn bó, rất dễ bảo khi được đối xử bằng lòng nhân đạo và sự kiên định, nên tôi nghi ngờ liệu những phương pháp bạo lực dùng để khuất phục chúng có gây tổn thương căn bản cho chúng hay không; tuy nhiên, tôi chắc chắn rằng một đứa trẻ không bao giờ nên bị thuần hóa cưỡng ép như vậy sau khi đã được cho phép chạy rông một cách thiếu sáng suốt; vì mỗi sự vi phạm công lý và lý tính trong việc đối xử với trẻ em đều làm suy yếu lý tính của chúng. Và trẻ em định hình tính cách sớm đến mức kinh nghiệm dẫn tôi suy luận rằng nền tảng của nhân cách đạo đức được cố định trước năm bảy tuổi, giai đoạn mà phụ nữ được phép toàn quyền quản lý con cái. Sau đó, thường xảy ra chuyện là một nửa công việc giáo dục là để sửa chữa—và được thực hiện rất không hoàn hảo nếu làm vội vàng—những lỗi lầm mà chúng sẽ không bao giờ mắc phải nếu mẹ chúng có sự hiểu biết sâu sắc hơn.
+
+Không thể bỏ qua một minh chứng điển hình về sự khờ dại của phụ nữ. Đó là cách họ đối xử với người hầu trước mặt con cái, khiến trẻ em lầm tưởng rằng những người đó có nghĩa vụ phải phục dịch mình và chịu đựng những tính khí thất thường của mình. Một đứa trẻ nên luôn được dạy để tiếp nhận sự hỗ trợ từ một nam nhân hay nữ nhân như một đặc ân; và bài học đầu tiên về sự tự chủ là chúng phải được dạy thực tế thông qua tấm gương của người mẹ, không đòi hỏi sự phục vụ cá nhân mà việc đòi hỏi điều đó khi khỏe mạnh là một sự xúc phạm đối với nhân loại; thay vì bị dẫn dắt để tỏ vẻ quan trọng, ý thức về sự yếu đuối của chính mình trước hết nên khiến chúng cảm nhận được sự bình đẳng tự nhiên của con người. Vậy mà, tôi đã thường xuyên phẫn nộ khi nghe thấy những người hầu bị gọi một cách hống hách đến để cho trẻ đi ngủ, rồi bị đuổi đi hết lần này đến lần khác vì "cậu chủ" hay "cô chiêu" cứ quấn quýt bên mẹ để ở lại thêm chút nữa. Khi bị buộc phải phục dịch thần tượng nhỏ bé đó một cách nô lệ như vậy, tất cả những tính khí đáng ghê tởm nhất đặc trưng cho một đứa trẻ hư hỏng đã được phơi bày.
+
+Nói tóm lại, đối với đa số những người mẹ, họ phó mặc con cái hoàn toàn cho sự chăm sóc của người hầu; hoặc vì đó là con mình nên họ đối xử như thể chúng là những vị bán thần nhỏ bé, mặc dù tôi luôn quan sát thấy rằng những phụ nữ thần tượng hóa con cái mình theo cách này hiếm khi thể hiện lòng nhân đạo thông thường với người hầu, hay cảm nhận được chút dịu dàng nào đối với bất kỳ đứa trẻ nào khác ngoài con mình.
+
+Tuy nhiên, chính những tình cảm độc tôn này và cách nhìn nhận sự vật mang tính cá nhân-vốn được tạo ra bởi sự ngu muội-đã khiến phụ nữ mãi dậm chân tại chỗ trong việc cải thiện bản thân, và khiến nhiều người trong số họ cống hiến cuộc đời cho con cái chỉ để làm suy yếu thể chất và làm hư hỏng tính khí của chúng, đồng thời phá hỏng bất kỳ kế hoạch giáo dục nào mà một người cha lý tính hơn có thể áp dụng; vì nếu không có sự đồng thuận của người mẹ, người cha thực hiện việc rèn giũa sẽ luôn bị coi là một kẻ bạo chúa.
+
+Nhưng khi thực hiện bổn phận của một người mẹ, một phụ nữ có thể chất khỏe mạnh vẫn có thể giữ cho diện mạo gọn gàng một cách tỉ mỉ, và hỗ trợ duy trì gia đình nếu cần thiết, hoặc thông qua việc đọc sách và đàm luận với cả hai giới mà không phân biệt để nâng cao tâm trí mình. Vì tự nhiên đã sắp đặt vạn vật một cách khôn ngoan đến mức nếu phụ nữ cho con bú, họ sẽ bảo toàn được sức khỏe của chính mình, và sẽ có một khoảng thời gian giãn cách giữa lần sinh mỗi đứa trẻ, đến nỗi chúng ta hiếm khi thấy một ngôi nhà đầy ắp trẻ sơ sinh. Và nếu họ theo đuổi một kế hoạch hành xử đúng đắn, không lãng phí thời gian chạy theo những biến chuyển phù phiếm của thời trang y phục, thì việc quản lý gia đình và con cái không cần phải ngăn cản họ tiếp cận văn chương, cũng không ngăn cản họ gắn bó với một ngành khoa học bằng cái nhìn kiên định giúp làm mạnh tâm trí, hoặc thực hành một trong những loại hình nghệ thuật tinh tế để trau dồi gu thẩm mỹ.
+
+Nhưng việc đi thăm nom để phô trương vẻ lộng lẫy, chơi bài, và dự vũ hội, chưa nói đến sự hối hả vô ích của những chuyện vụn vặt buổi sáng, đã kéo phụ nữ rời xa bổn phận, khiến họ trở nên tầm thường, khiến họ trở nên "vừa mắt"—theo nghĩa hiện nay của từ này—đối với mọi nam nhân, trừ chồng mình. Vì một chuỗi những khoái lạc mà trong đó tình cảm không được vận dụng thì không thể nói là cải thiện sự hiểu biết, dù nó bị gọi sai là "đi xem thế giới"; tuy nhiên trái tim sẽ trở nên lạnh nhạt và ghét bỏ bổn phận bởi những cuộc giao tiếp vô nghĩa như vậy, vốn trở nên cần thiết do thói quen ngay cả khi nó không còn gây thú vị nữa.
+
+Nhưng cho đến khi sự bình đẳng được thiết lập nhiều hơn trong xã hội, cho đến khi các cấp bậc bị xóa bỏ và phụ nữ được tự do, chúng ta sẽ không thấy hạnh phúc gia đình tôn nghiêm đó, điều mà vẻ cao quý giản đơn của nó không thể được cảm thụ bởi những tâm trí ngu muội hay hư hỏng; nhiệm vụ quan trọng của giáo dục cũng sẽ không bao giờ thực sự bắt đầu cho đến khi diện mạo của một người phụ nữ không còn được coi trọng hơn tâm trí của cô ấy. Vì mong đợi một người phụ nữ khờ dại ngu muội trở thành một người mẹ tốt cũng ngớ ngẩn như việc mong thu hoạch lúa mì từ cỏ dại, hay quả sung từ cây kế.
+
+SECTION 13.6.
+
+Không cần phải thông báo cho độc giả sáng suốt, giờ đây tôi bước vào những suy ngẫm kết luận của mình, rằng việc thảo luận về chủ đề này thuần túy bao gồm việc mở ra một vài nguyên lý đơn giản và dọn sạch những mảnh vụn che mờ chúng. Nhưng vì không phải mọi độc giả đều sáng suốt, tôi phải được phép thêm một vài lời giải thích để đưa chủ đề này trở về với lý tính—với cái lý tính chậm chạp, vốn chấp nhận các ý kiến một cách tin tưởng mù quáng và ngoan cố ủng hộ chúng để tránh cho chính nó cái công sức suy nghĩ.
+
+Các nhà đạo đức học đã nhất trí rằng trừ khi đức hạnh được nuôi dưỡng bằng tự do, nếu không nó sẽ không bao giờ đạt được sức mạnh xứng đáng—và những gì họ nói về nam giới tôi mở rộng ra cho toàn nhân loại, khẳng định rằng trong mọi trường hợp đạo đức phải được cố định trên các nguyên lý bất biến; và một sinh thể không thể gọi là lý tính hay đức hạnh nếu vâng theo bất kỳ quyền uy nào khác ngoài lý tính.
+
+Để khiến phụ nữ trở thành những thành viên thực sự hữu ích của xã hội, tôi lập luận rằng họ nên được dẫn dắt bằng cách trau dồi sự hiểu biết trên quy mô lớn để đạt được một tình cảm lý tính dành cho đất nước mình, dựa trên tri thức, bởi vì rõ ràng là chúng ta ít quan tâm đến những gì mình không hiểu. Và để làm cho kiến thức phổ quát này có tầm lẽ trọng xứng đáng, tôi đã nỗ lực chỉ ra rằng các bổn phận riêng tư không bao giờ được hoàn thành đúng mức trừ khi sự hiểu biết mở rộng trái tim; và đức hạnh công ích chỉ là tổng hợp của các đức hạnh riêng tư. Nhưng những phân biệt được thiết lập trong xã hội hủy hoại cả hai, bằng cách đập nát vàng ròng của đức hạnh cho đến khi nó chỉ còn là lớp vỏ kim sa che đậy thói xấu; vì trong khi sự giàu sang làm một nam nhân đáng kính hơn đức hạnh, thì sự giàu sang sẽ được tìm kiếm trước đức hạnh; và trong khi diện mạo của phụ nữ được vuốt ve, dù nụ cười ngô nghê trẻ con cho thấy sự trống rỗng về tâm trí—thì tâm trí đó sẽ bị bỏ hoang. Tuy nhiên, khoái lạc thực sự phải xuất phát từ tâm trí—vì điều gì có thể sánh bằng những cảm giác được tạo ra bởi tình cảm hai chiều, được hỗ trợ bởi sự tôn trọng lẫn nhau? Những cái vuốt ve lạnh lùng hay cuồng nhiệt của dục vọng là gì, nếu không phải là tội lỗi đang ôm lấy cái chết, khi so với sự tràn trề tiết hạnh của một trái tim thuần khiết và trí tưởng tượng cao cả? Phải, hãy để tôi nói với kẻ phóng đãng mộng mơ khi hắn xem thường sự hiểu biết ở phụ nữ—rằng tâm trí mà hắn bỏ qua chính là thứ truyền sức sống cho tình cảm nhiệt thành mà từ đó niềm hân hoan, dù ngắn ngủi, mới có thể tuôn trào! Và rằng nếu không có đức hạnh, một sự gắn bó tính dục phải lụi tàn, như ngọn nến mỡ trong giá đỡ, tạo ra nỗi ghê tởm không thể chịu nổi. Để chứng minh điều này, tôi chỉ cần quan sát rằng những nam nhân đã lãng phí phần lớn cuộc đời mình với phụ nữ, và là những người họ từng tìm kiếm khoái lạc với niềm khao khát mãnh liệt, lại giữ những định kiến hèn mọn nhất về giới tính này. Đức hạnh, kẻ tinh luyện thực sự của niềm vui! nếu những gã đàn ông khờ dại xua đuổi ngươi khỏi thế gian để thỏa mãn mọi dục vọng mà không có gì kìm hãm—thì một linh hồn nhạy cảm đầy gu thẩm mỹ sẽ leo lên thiên đường để mời ngươi trở lại, nhằm mang đến hương vị cho khoái lạc!
+
+Việc phụ nữ hiện nay bị biến thành khờ dại hoặc hư hỏng do sự ngu muội là điều tôi nghĩ không thể bàn cãi; và việc những hiệu ứng hữu ích nhất hướng tới cải thiện nhân loại có thể được kỳ vọng từ một cuộc CÁCH MẠNG trong phong thái nữ giới, ít nhất cũng hiện lên đầy khả năng từ quan sát. Vì cũng như hôn nhân được ví là khởi nguồn của những lòng nhân ái thân thương giúp tách nam nhân ra khỏi bầy thú dã man, thì cuộc giao thiệp đầy hư hỏng mà sự giàu sang, nhàn rỗi và khờ dại tạo ra giữa hai giới lại gây tổn hại cho đạo đức một cách phổ biến hơn tất cả các thói xấu khác của nhân loại gộp lại. Vì dục vọng ngoại tình mà những bổn phận thiêng liêng nhất bị hy sinh, bởi trước khi kết hôn, nam giới thông qua sự gần gũi hỗn tạp với phụ nữ đã học cách coi tình yêu như một sự thỏa mãn ích kỷ—học cách tách nó không chỉ khỏi sự tôn trọng mà còn khỏi cả tình cảm đơn thuần xây dựng trên thói quen, vốn pha trộn chút lòng nhân đạo vào đó. Công lý và tình bạn cũng bị thách thức, và sự thuần khiết của gu thẩm mỹ vốn sẽ tự nhiên dẫn dắt một nam nhân trân trọng vẻ biểu hiện tình cảm mộc mạc hơn là những điệu bộ giả tạo, đã bị làm cho hư hỏng. Nhưng sự giản đơn cao quý của tình cảm, thứ dám xuất hiện mà không cần tô điểm, có ít sức hút đối với kẻ phóng đãng, mặc dù nó là nét quyến rũ giúp gắn kết sợi dây hôn nhân, bảo đảm cho những lời thề nguyện của một niềm đam mê nồng cháy hơn nhận được sự quan tâm cần thiết từ cha mẹ; vì con cái sẽ không bao giờ được giáo dục đúng đắn cho đến khi tình bạn tồn tại giữa cha và mẹ. Đức hạnh bay khỏi một ngôi nhà chia rẽ chính mình—và cả một binh đoàn quỷ dữ sẽ định cư tại đó.
+
+Tình cảm giữa chồng và vợ không thể thuần khiết khi họ có quá ít tâm hồn chung, và khi niềm tin được thiết lập tại gia là quá ít, điều tất yếu sẽ xảy ra khi những mục tiêu theo đuổi của họ quá khác biệt. Sự thân mật mà từ đó sự dịu dàng nên tuôn trào sẽ không, và không thể tồn tại giữa những kẻ hư hỏng.
+
+Do đó, khi khẳng định rằng sự phân biệt giới tính mà nam giới hăng hái nhấn mạnh là tùy tiện, tôi đã dừng lại ở một quan sát mà vài nam nhân sáng suốt—những người tôi từng đàm luận về chủ đề này—thừa nhận là có cơ sở; và đơn giản là thế này: sự khiết tịnh ít ỏi tìm thấy ở nam giới, và hệ quả là sự coi thường tiết hạnh, có xu hướng làm hạ thấp cả hai giới; và hơn nữa, tiết hạnh của phụ nữ, khi được đặc trưng như vậy, sẽ thường chỉ là tấm màn xảo quyệt che đậy sự phóng đãng, thay vì là hình chiếu tự nhiên của sự thuần khiết, cho đến khi tiết hạnh được tôn trọng một cách phổ biến.
+
+Tôi tin chắc rằng từ sự bạo ngược của nam giới mà phần lớn những sự khờ dại của phụ nữ nảy sinh; và sự xảo quyệt, điều tôi thừa nhận hiện đang là một phần trong tính cách của họ, tôi cũng đã nhiều lần nỗ lực chứng minh rằng nó được tạo ra bởi sự áp bức. Chẳng hạn như những kẻ bất đồng chính kiến chẳng phải là một tầng lớp người mà sự thật khắt khe đặc trưng cho họ là xảo quyệt hay sao? Và tôi chẳng lẽ không thể nhấn mạnh vào sự thật này để chứng minh rằng khi bất kỳ quyền lực nào khác ngoài lý tính kìm hãm tinh thần tự do của con người, thì sự giả dối sẽ được thực hiện, và những mưu mẹo xảo quyệt khác nhau sẽ tự nhiên nảy sinh? Sự quan tâm quá mức đến lễ nghi, vốn được đẩy lên mức tỉ mỉ thái quá, và tất cả những sự hối hả trẻ con về những chuyện vụn vặt cùng vẻ trịnh trọng hão huyền mà bức biếm họa của Butler về một kẻ bất đồng chính kiến gợi ra trong trí tưởng tượng, đã nhào nặn con người cũng như tâm trí họ theo khuôn mẫu của sự nhỏ nhen cứng nhắc. Tôi nói một cách khái quát, vì tôi biết bao nhiêu vẻ đẹp của bản tính nhân loại đã bị cuốn vào những giáo phái; tuy nhiên, tôi khẳng định rằng chính thành kiến hạn hẹp đối với giáo phái của họ—điều mà phụ nữ dành cho gia đình mình—đã ngự trị trong bộ phận bất đồng chính kiến của cộng đồng, dù họ có đáng kính ở các phương diện khác; và cũng chính sự thận trọng rụt rè hay những nỗ lực ngoan cố đó thường làm nhục những cố gắng của cả hai. Sự áp bức theo cách đó đã nhào nặn nhiều nét tính cách của họ trùng khớp hoàn toàn với một nửa nhân loại bị áp bức; vì chẳng phải ai cũng biết rằng những kẻ bất đồng chính kiến giống như phụ nữ, thích cùng nhau bàn bạc và xin lời khuyên của nhau cho đến khi bằng một sự phối hợp phức tạp của những mưu mẹo nhỏ nhặt, một mục đích nhỏ nhoi nào đó được đạt thành? Một sự quan tâm tương tự trong việc gìn giữ danh tiếng đã hiện rõ trong thế giới của những kẻ bất đồng chính kiến và nữ giới, và được tạo ra bởi cùng một nguyên nhân.
+
+Khi khẳng định những quyền mà phụ nữ cũng như nam giới nên đấu tranh để giành lấy, tôi không cố gắng giảm nhẹ lỗi lầm của họ; mà là chứng minh chúng là hậu quả tự nhiên của giáo dục và địa vị của họ trong xã hội. Nếu vậy, thật hợp lý khi giả định rằng họ sẽ thay đổi tính cách và sửa chữa những thói xấu cũng như sự khờ dại của mình, khi họ được phép tự do về mặt thể chất, đạo đức và dân sự.
+
+Hãy để phụ nữ chia sẻ các quyền lợi, và cô ấy sẽ nỗ lực vươn lên theo những đức hạnh của nam giới; vì cô ấy phải trở nên hoàn thiện hơn khi được giải phóng, hoặc chứng minh tính chính đáng cho quyền uy đã xiềng xích một sinh thể yếu ớt như vậy vào bổn phận của mình. Nếu là trường hợp sau, sẽ thật tiện lợi khi mở một tuyến giao thương mới với Nga để nhập roi; một món quà mà người cha nên tặng cho con rể vào ngày cưới, để người chồng có thể giữ toàn bộ gia đình mình trong trật tự bằng chính phương tiện đó; và trị vì mà không hề vi phạm công lý, nắm giữ vương trượng này, là chủ nhân duy nhất của ngôi nhà, bởi lẽ anh ta là sinh thể duy nhất trong đó sở hữu lý tính; một quyền tối thượng thiêng liêng, bất khả xâm phạm nơi trần thế được Chủ tể vũ trụ truyền vào nam giới. Chấp nhận vị thế này, phụ nữ không có bất kỳ quyền vốn có nào để đòi hỏi; và theo quy tắc tương tự, bổn phận của họ cũng tan biến, vì quyền lợi và bổn phận là không thể tách rời.
+
+Vậy thì hãy công bằng, hỡi các nam nhân hiểu biết! và đừng quá khắt khe với những lỗi lầm của phụ nữ hơn là những trò hư hỏng của con ngựa hay con lừa mà các ông cung cấp thức ăn cho chúng, và hãy cho cô ấy những đặc quyền của sự ngu muội trong khi chính các ông tước đi quyền lý tính của cô ấy, nếu không các ông sẽ tệ hơn cả những tên quản lý công trình Ai Cập, mong đợi đức hạnh ở nơi mà tự nhiên chẳng ban cho sự hiểu biết!
+
+Hết văn bản điện tử từ Dự án Gutenberg của tác phẩm A Vindication of the Rights of Woman.

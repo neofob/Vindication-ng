@@ -1,6 +1,6 @@
-CHAPTER 1.
+CHAPTER 1
 
-THE RIGHTS AND INVOLVED DUTIES OF MANKIND CONSIDERED.
+THE RIGHTS AND INVOLVED DUTIES OF MANKIND CONSIDERED
 
 In the present state of society, it appears necessary to go back to
 first principles in search of the most simple truths, and to
@@ -310,5 +310,3 @@ the foggy atmosphere, which he almost disdained to breathe, his
 active mind would have darted forward to contemplate the perfection
 of man in the establishment of true civilization, instead of taking
 his ferocious flight back to the night of sensual ignorance.
-
-
