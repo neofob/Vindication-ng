@@ -1,7 +1,7 @@
-CHAPTER 6.
+CHAPTER 6
 
 THE EFFECT WHICH AN EARLY ASSOCIATION OF IDEAS HAS UPON THE
-CHARACTER.
+CHARACTER
 
 Educated in the enervating style recommended by the writers on whom
 I have been animadverting; and not having a chance, from their
@@ -269,5 +269,3 @@ understanding, to save the poor wight from the weak dependent state
 of even harmless ignorance.  For it is the right use of reason
 alone which makes us independent of every thing--excepting the
 unclouded Reason--"Whose service is perfect freedom."
-
-

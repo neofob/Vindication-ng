@@ -429,5 +429,3 @@ reputation, and men their honour.  A sentiment that often exists
 unsupported by virtue, unsupported by that sublime morality which
 makes the habitual breach of one duty a breach of the whole moral
 law.
-
-

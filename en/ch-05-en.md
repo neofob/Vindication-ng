@@ -1,7 +1,7 @@
-CHAPTER 5.
+CHAPTER 5
 
 ANIMADVERSIONS ON SOME OF THE WRITERS WHO HAVE RENDERED WOMEN
-OBJECTS OF PITY, BORDERING ON CONTEMPT.
+OBJECTS OF PITY, BORDERING ON CONTEMPT
 
 The opinions speciously supported, in some modern publications on
 the female character, and education, which have given the tone to
@@ -1724,5 +1724,3 @@ bound from one road to the other without losing your way.*
 
 (*Footnote.  See an excellent essay on this subject by Mrs.
 Barbauld, in Miscellaneous pieces in Prose.)
-
-

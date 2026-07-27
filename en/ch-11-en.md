@@ -227,5 +227,3 @@ very differently constituted, parents, I fear, will still insist on
 being obeyed, because they will be obeyed, and constantly endeavour
 to settle that power on a Divine right, which will not bear the
 investigation of reason.
-
-

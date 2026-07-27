@@ -466,5 +466,3 @@ sensibility that is not tempered by reflection.  Besides, when
 love, even innocent love, is the whole employ of your lives, your
 hearts will be too soft to afford modesty that tranquil retreat,
 where she delights to dwell, in close union with humanity.
-
-

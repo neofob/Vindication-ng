@@ -453,5 +453,3 @@ should learn to respect ourselves; and the peace of mind of a
 worthy man would not be interrupted by the idle vanity of his wife,
 nor his babes sent to nestle in a strange bosom, having never found
 a home in their mother's.
-
-

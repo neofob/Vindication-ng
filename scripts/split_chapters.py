@@ -1,3 +1,4 @@
+#!/usr/bin/env python3
 import re
 import os
 
@@ -13,8 +14,8 @@ def split_chapters(input_file, output_dir):
     start_line = -1
     for i in range(len(lines)):
         if lines[i].startswith('CHAPTER 1.'):
-            # Heuristic: The actual Chapter 1 usually has a title or is followed by more text, 
-            # and the TOC entries are closely packed. 
+            # Heuristic: The actual Chapter 1 usually has a title or is followed by more text,
+            # and the TOC entries are closely packed.
             # Let's specifically skip the first few occurrences if they are in the TOC block.
             if i > 500: # Based on our grep, actual book starts after line 1000
                 start_line = i
@@ -34,7 +35,7 @@ def split_chapters(input_file, output_dir):
         if match:
             if current_chapter_content:
                 chapters.append((''.join(current_chapter_content), chapter_num))
-            
+
             chapter_num = int(match.group(1))
             current_chapter_content = [line]
         else:
@@ -48,10 +49,10 @@ def split_chapters(input_file, output_dir):
         filename = f"ch-{num:02d}-en.md"
         filepath = os.path.join(output_dir, filename)
         with open(filepath, 'w', encoding='utf-8') as f:
-            # Simple conversion to Markdown: keep content as is, 
+            # Simple conversion to Markdown: keep content as is,
             # but the CHAPTER line is already a good header candidate.
             f.write(content)
         print(f"Saved {filename}")
 
 if __name__ == "__main__":
-    split_chapters('/home/tuan/src/Vindication/pg3420.txt', '/home/tuan/src/Vindication/chapters')
+    split_chapters('./en/pg3420.txt', './chapters')

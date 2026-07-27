@@ -781,8 +781,4 @@ ignorance, to whom ye deny the rights of reason, or ye will be
 worse than Egyptian task-masters, expecting virtue where nature has
 not given understanding!
 
-
-
-
-
 End of The Project Gutenberg Etext of A Vindication of the Rights of Woman

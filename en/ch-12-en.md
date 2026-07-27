@@ -1,6 +1,6 @@
-CHAPTER 12.
+CHAPTER 12
 
-ON NATIONAL EDUCATION.
+ON NATIONAL EDUCATION
 
 The good effects resulting from attention to private education will
 ever be very confined, and the parent who really puts his own hand
@@ -1009,5 +1009,3 @@ at large;  so that when I wish to see my sex become more like moral
 agents, my heart bounds with the anticipation of the general
 diffusion of that sublime contentment which only morality can
 diffuse.
-
-

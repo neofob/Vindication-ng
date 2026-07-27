@@ -105,5 +105,3 @@ pledge of affection, will not enliven it, if both father and mother
 are content to transfer the charge to hirelings; for they who do
 their duty by proxy should not murmur if they miss the reward of
 duty--parental affection produces filial duty.
-
-
