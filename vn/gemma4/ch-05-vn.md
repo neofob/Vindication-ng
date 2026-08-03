@@ -1,11 +1,8 @@
-CHƯƠNG 5
-
-NHỮNG PHÊ BÌNH VỀ MỘT SỐ TÁC GIẢ ĐÃ BIẾN PHỤ NỮ
-THÀNH ĐỐI TƯỢNG CỦA SỰ THƯƠNG HẠI, GẦN NHƯ LÀ SỰ KHINH MIỆT
+# CHƯƠNG 5 - NHỮNG PHÊ BÌNH VỀ MỘT SỐ TÁC GIẢ ĐÃ BIẾN PHỤ NỮ THÀNH ĐỐI TƯỢNG CỦA SỰ THƯƠNG HẠI, GẦN NHƯ LÀ SỰ KHINH MIỆT
 
 Những ý kiến được ngụy biện trong một vài ấn phẩm hiện đại về tính cách và giáo dục của phái nữ, vốn đã tạo ra âm hưởng cho phần lớn những quan sát hời hợt về giới này, giờ đây cần phải được xem xét.
 
-MỤC 5.1.
+## Mục 5.1.
 
 Tôi sẽ bắt đầu với Rousseau, và phác họa tính cách của phụ nữ theo chính lời ông ta, xen kẽ bằng những lời bình luận và suy ngẫm. Quả thực, các bình luận của tôi đều khởi phát từ một vài nguyên lý đơn giản, và lẽ ra có thể được suy ra từ những điều tôi đã trình bày; nhưng cấu trúc nhân tạo kia lại được dựng lên với quá nhiều sự khéo léo, đến mức dường như cần phải tấn công nó một cách chi tiết hơn, và chính tôi sẽ thực hiện việc vận dụng đó.
 
@@ -139,7 +136,7 @@ Nhưng hệ thống giáo dục mà tôi tha thiết mong thấy bị xóa bỏ 
 
 Đã có nhiều phụ nữ trên thế gian này, thay vì được hỗ trợ bởi lý tính và đức hạnh của cha và anh trai, đã tự củng cố tâm trí mình bằng cách đấu tranh với thói hư và sự khờ dại của họ; tuy nhiên họ chưa bao giờ gặp một vị anh hùng trong hình hài một người chồng, kẻ trả món nợ mà nhân loại nợ họ, để tình cờ đưa lý tính của họ trở lại trạng thái lệ thuộc tự nhiên, và trả lại đặc quyền bị chiếm đoạt cho đàn ông là được đứng trên dư luận.
 
-MỤC 5.2.
+## Mục 5.2.
 
 Những bài giảng của Tiến sĩ Fordyce từ lâu đã là một phần trong thư viện của mọi thiếu nữ; thậm chí các bé gái ở trường cũng được phép đọc chúng; nhưng tôi sẽ lập tức loại bỏ chúng khỏi tủ sách của học trò mình, nếu tôi muốn tăng cường trí tuệ của cô bằng cách dẫn dắt cô hình thành những nguyên lý đúng đắn trên một nền tảng rộng rãi; hoặc ngay cả khi tôi chỉ khao khát trau dồi thị hiếu của cô; mặc dù phải thừa nhận rằng chúng chứa đựng nhiều quan sát sáng suốt.
 
@@ -174,7 +171,7 @@ Bức chân dung sau đây chẳng phải là bức chân dung của một nô l
 Tuy nhiên, Tiến sĩ Fordyce hẳn phải rất ít am hiểu về trái tim con người nếu ông thực sự cho rằng lối cư xử như vậy sẽ mang tình yêu lang thang trở về, thay vì khơi dậy sự khinh miệt. Không, vẻ đẹp, sự dịu dàng, vân vân... có thể chiếm được một trái tim; nhưng sự quý trọng, tình cảm lâu bền duy nhất, chỉ có thể đạt được bằng đức hạnh được hỗ trợ bởi lý tính. Chính sự tôn trọng đối với trí tuệ đã giữ cho sự dịu dàng dành cho hình hài luôn sống mãi.
 
 Vì những tập sách này thường xuyên được đưa vào tay giới trẻ, tôi đã chú ý đến chúng nhiều hơn mức mà nói một cách khắt khe là chúng xứng đáng; nhưng vì chúng đã góp phần làm hư hỏng thị hiếu và làm suy yếu trí tuệ của nhiều đồng loại của tôi, tôi không thể im lặng bỏ qua.
-MỤC 5.3.
+## Mục 5.3.
 
 Sự quan tâm chăm sóc của người cha thấm đẫm trong tác phẩm 'Di sản cho các con gái' của Tiến sĩ Gregory, khiến tôi bắt đầu nhiệm vụ phê bình với một sự tôn kính đầy trìu mến; nhưng vì tập sách nhỏ này có nhiều điểm thu hút để khuyến khích sự chú ý của những thành phần đáng kính nhất trong phái nữ của tôi, tôi không thể im lặng bỏ qua những lập luận ngụy biện hỗ trợ cho những ý kiến mà tôi nghĩ là đã gây ra ảnh hưởng độc hại nhất đến đạo đức và phong thái của thế giới phụ nữ.
 
@@ -222,7 +219,7 @@ Khi tôi bàn về tình bạn, tình yêu và hôn nhân, sẽ thấy rằng ch
 
 Thế gian và các cá nhân sẽ hạnh phúc biết bao nếu tất cả sự quan tâm vô ích nhằm đạt được hạnh phúc trần thế theo một kế hoạch hạn hẹp này được chuyển thành khát khao nỗ lực cải thiện trí tuệ. "Khôn ngoan là điều quan trọng nhất: HÃY tìm kiếm sự khôn ngoan; và với tất cả những gì con có, hãy tìm lấy sự hiểu biết." "Hỡi những kẻ đơn sơ, các ngươi sẽ yêu sự đơn giản và ghét tri thức đến bao giờ?" Sự Khôn Ngoan nói với các con gái của loài người!
 
-MỤC 5.4.
+## Mục 5.4.
 
 Tôi không định đề cập đến tất cả các tác giả đã viết về chủ đề phong thái phụ nữ — thực tế điều đó chỉ là dẫm lại lối mòn cũ, vì nhìn chung họ đều viết theo cùng một mạch; nhưng khi tấn công đặc quyền được ca tụng của đàn ông — đặc quyền có thể gọi một cách nhấn mạnh là vương trượng sắt của sự bạo ngược, tội lỗi nguyên thủy của những kẻ bạo chúa, tôi tuyên bố chống lại mọi quyền lực xây dựng trên định kiến, cho dù nó cổ xưa đến đâu.
 
@@ -275,7 +272,7 @@ Tôi sẽ không gọi đó là một trí tuệ nam tính, vì tôi không ch�
 (*Chú thích. Đồng nhất ý kiến với Bà Macaulay về nhiều nhánh giáo dục, tôi hướng người đọc đến tác phẩm giá trị của bà thay vì trích dẫn những tình cảm của bà để hỗ trợ ý kiến của mình.)
 
 Khi lần đầu nghĩ về việc viết những phê bình này, tôi đã mong đợi sự tán thành của Bà Macaulay với một chút nhiệt huyết sôi nổi vốn là điều mà cuộc đời tôi đã nỗ lực tiết chế; nhưng sớm nghe thấy với nỗi buồn nôn nao của hy vọng bị dập tắt và sự nghiêm trọng tĩnh lặng của niềm tiếc nuối — rằng bà không còn nữa!
-MỤC 5.5.
+## Mục 5.5.
 
 Nhìn lại những tác phẩm khác nhau đã được viết về giáo dục, không thể im lặng bỏ qua những lá thư của Lord Chesterfield. Không phải tôi định phân tích hệ thống phi nam tính và vô đạo đức của ông ta, hay thậm chí là chắt lọc bất kỳ nhận xét sắc sảo hữu ích nào xuất hiện trong những bức thư phù phiếm đó — Không, tôi chỉ muốn đưa ra một vài suy ngẫm về xu hướng công khai của chúng — nghệ thuật tiếp thu sớm kiến thức về thế gian. Một nghệ thuật mà tôi mạo muội khẳng định rằng, nó âm thầm gặm nhấm như con sâu trong nụ, những năng lực đang mở rộng, và biến thành chất độc những dòng nhựa hào phóng lẽ ra phải dâng cao mạnh mẽ trong cơ thể trẻ tuổi để truyền cảm hứng cho những tình cảm nồng nhiệt và những quyết tâm lớn lao.
 
